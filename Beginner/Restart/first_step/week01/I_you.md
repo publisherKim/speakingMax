@@ -26,4 +26,10 @@
 
 ## sentence
 ### you are: 너는 ~야
-- 
+- You are a student: 너는 학생이야
+- You are a woman: 너는 여자야
+- You are a hero: 너는 영웅이야
+- You are a designer: 너는 디자이너야
+- You are a farmer: 너는 농부야
+- You are a reporter: 너는 기자야
+- You are a baker: 너는 제빵사야
