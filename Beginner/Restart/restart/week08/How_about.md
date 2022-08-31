@@ -1,0 +1,67 @@
+## How about: ~~하는게 어때?
+- This time we will learn about the expression "How about ~?": 이번시간에는 ~~하는게 어때? 라는 표현을 배울거야
+- This is easy and simpe way to suggest something.: 이것은 무언가를 제안하는 쉽고 간편한 방법이야.
+- How about dinner: 저녁식사 어때?
+- How about Italian food?: 이탈리아 음식 어떄?
+- How about Icecream?: 아이스크림 어때?
+- Now, let's learn more!: 이제 더 많이 배워보자!
+- I'm visiting Paris with some friends.: 나는 약간의 친구들과 함께 파리를 방문했어.
+- Suddenly, It's starts raing!: 갑자기 비가오기 시작했어!
+- We need a place to avoid the rain.: 우리는 비를 피할곳이 필요해요.
+- Then I see a museum across the street.: 그때에 나는 반대편 길거리에서 박물관을 보았어.
+- To suggest going there. I can say.: 그곳에 가는걸 제안하려고 할때 나는 이렇게 말해
+    - How about the museum?: 박물관에 가는게 어때?
+- Your friend wants to go Swimming together this weekend.: 당신의 친구와 같이 이번 주말에 수영장을 가기를 원해.
+- You'll be busy on Saturday. You want to suggest this Sunday: 너는 이번주 토요일에 바쁠거야. 너는 이번주 일요일을 제안하길 원해.
+- In this case, you can say,: 이런 상황에서 넌 이렇게 말할수 있어,
+    - How about this Sunday.: 이번주 일요일 어때?
+- You're going to get married.: 당신은 결혼할 예정이에요.
+- Now, you're talking about the honeymoon with your partner.: 이제 당신은 당신의 파트너와에 함꼐 허니문에 관하여 이야기 할거야.
+- You want to suggest going to Hawaii for your honeymoon.: 당신은 신혼여행으로 하와이에 가자고 제안하고 싶어해.
+- In this case, you can say,: 이런경우 너는 이렇게 말할수 있어,
+    - How about Hawaii?: 하와이는 어때?
+- This expression is so useful, right?: 이런 표현 방식은 매우 유용하지, 그렇지?
+- You can suggest many things in English now. 이제 당신은 영어로 매우 많을것들을 제안할수 있어.
+- When will meet again?: 우리 언제 다시 만날래?
+- How about tomorrow?: 내일은 어때?
+- Okay! See you sonn!: 알겠어. 곧 만나자!
+- How about a horror movie? 공포영화 어때?
+- Can you watch it?: 너 이것 볼수 있니?
+- I need a break.: 나는 휴식이 필요해
+- How about some icecream?: 약간의 아이스크림 어때?
+
+## Sentence
+- 차는 어때요? How about tea?
+- 이번주 금요일 어때요? How about this Friday?
+- 이번주 일요일 어때요? How about this Sunday 
+- 박물관 어때요?: How about the museum?
+- 하와이 어때요?: How about hawaii?
+- 이모자는 어때요?: How about this hat?
+- 이 치마는 어때요?: How about this skitr?
+- 회색 어때요?: How about the gray color?
+- 런던은 어때요?: How about the London?
+- 이 반지 어떄요?: How about this ring?
+- 이 커피는 어때요?: How about this coffie?
+
+## pratice: 실전
+- Welcome: 환영해
+    - We have many fashion Items: 우리는 많은 패션 아이템을 가지고 있어.
+- What are you looking for?: 무엇을 찾고 있니?
+- Hi: 안녕
+- I'm looking for my girl friend: 여자친구 줄걸 찾고 있어.
+- How about this hat?: 이 모자는 어때?
+- This is our best-selling item: 우리 집에서 제일 잘나가는 품옥이야
+- Hmm. She dosen't wear hats. 음 그녀는 모자를 쓰질 않아.
+- Ok.: 알겠어
+- How about this skirt: 이 치마는 어때?
+    -  We have many colors.: 우리는 많은 색상들을 가지고 있어.
+- Pink skirts are very popular: 핑크 치마는 매우 인기가 많아.
+- Hmm..: 음..
+    - I don't think she likes pink.: 내 생각에 그녀는 분홍을 좋아하지 않아.
+- But I like the design: 그렇지만, 디자인은 맘에들어.
+- What about some other colors? 다른 색상들은 어떨까?
+- There is blue, green, blak and gray: 저기에는 파랑, 녹색, 검정 그리고 회색이 있어.
+- How about the gray color? It is simple and chic. 회색은 어떄? 이것은 단순하고 날씬해보여.
+- Oh, that look great!: 오 그것 매우 좋아보여!
+    - I will take that gray skirt!.: 저 회색 치마 취할께!
+- 
