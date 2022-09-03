@@ -1,11 +1,10 @@
-## Voca1
+## Voca01
 - He: 그
 - nurse: 간호사
 - Korean: 한국인
 - model: 모델
 - driver: 운전사
-
-## Sentence
+## Sentence01
 ### He is ~ 그는 ~~에요.
 - 그는 간호사에요.: He is a nurse.
 - 그는 한국인이에요.: He is a Korean.
@@ -19,13 +18,13 @@
 - 그는 기자에요.: He is a reporter.
 - 그는 영웅이에요.: He is a hero.
 
-## Voca2
+## Voca02
 - She: 그녀
 - doctor: 의사
 - American: 미국인
 - Dancer: 무용수
 - Painter: 화가
-## Sentence
+## Sentence02
 ### She is~~: 그녀는 ~~에요.
 - 그녀는 의사에요.: She is a doctor.
 - 그녀는 미국인이에요.: She ia American.

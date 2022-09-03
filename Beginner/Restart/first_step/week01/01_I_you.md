@@ -1,4 +1,4 @@
-## voca
+## voca01
 - I: 나
 - teacher: 선생님
 - man: 남자
@@ -7,7 +7,7 @@
 - baker: 제빵사
 - dentist: 치과의사
 
-## sentence 
+## sentence 01
 ### I am: 나는 ~ 에요.
 - I am a teacher: 나는 선생님이에요.
 - I am a man: 나는 남자에요.
@@ -16,7 +16,7 @@
 - I am a dentist: 나는 치과의사에요.
 - I am a banker: 나는 은행원이에요.
 
-## voca
+## voca02
 - you: 너
 - student: 학생
 - woman: 여자
@@ -24,7 +24,7 @@
 - designer: 디자이너
 - farmer: 농부
 
-## sentence
+## sentence02
 ### you are: 너는 ~야
 - You are a student: 너는 학생이야
 - You are a woman: 너는 여자야
