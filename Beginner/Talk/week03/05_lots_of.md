@@ -22,3 +22,14 @@
 - 나 집에 가고 싶어.: I want to go home.
 
 ## Conversation02
+- You won't find this anywhere else.: 저희 가게에서만 판매하는 제품이에요.
+- What do you think?: 어떠세요?
+- That's really cool!: 정말 멋지네요!
+- I knew you would like it.: 좋아하실 줄 알았어요.
+- Everyone loves this magnet.: 모든 고객분들이 이 자석을 좋아하시거든요.
+- Actually, I haven't decided yet.: 사실 아직 결정을 못했어요.
+- Oh, I see. 그러시군요.
+- Then what about this hoodle?: 그러면 이 후드는 어떤가요?
+- It has a drawing of a bear, which is the symbol of this state.: 이 주의 상징인 곰이 그려져 있어요.
+- I would like to buy it.: 이걸로 구맬할께요.
+- Great choice: 좋은 선택이에요.
