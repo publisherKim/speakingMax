@@ -2,6 +2,8 @@
 - 나 친구 엄청 많아요.: I have lots of friends.
 - 너 물을 많이 마셔야해.: You have to drink lots of water.
 - 뉴욕에는 멋진 건물이 정말 많다.: There are lots of cool buildings in New York.
+- 나 사진 정말 많이 찍었어.: I took lots of pictures.
+- 나는 커피에 설탕 많이 넣어: I put lots of sugar in my coffee.
 
 ## Conversation01
 - Hello.: 안녕하세요.
@@ -13,3 +15,10 @@
 - Feel free to look around: 편하게 둘러보세요.
     - What would you recommend?: 어떤 기념품을 추천하시나요?
 - I recommend this magnet.: 저는 이 자석을 추천해요.
+
+## won't(워운트) vs want(원트) to 
+- 나 오늘 파티에 가지 않을거야.: I won't go the party today.
+- 나 집에 가지 않을거야.: I won't go home.
+- 나 집에 가고 싶어.: I want to go home.
+
+## Conversation02
