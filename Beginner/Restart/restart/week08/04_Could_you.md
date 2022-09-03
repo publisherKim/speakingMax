@@ -1,0 +1,66 @@
+## Could you: ~해 주시겠어요?
+- Let's learn about a new expression "Could you~?": 새로운 표현인 "Could you~?"에 대해 배워보자.
+- With this expression, you can ask a question VERY POLITELY.: 이 표현을 쓰면 아주 공손하게 질문을 할 수 있어요.
+- Could you help me?: 저좀 도와주시겠어요?
+- Could you listen carefully?: 잘 들어 주시겠어요?
+- Could you go with me?: 저와 함께 가 주시겠어요?
+- Now, I'll ask you. Could you study this expression with me?: 이제 내가 여러분에게 물어볼께. 나와 함께 이표현에 대해 공부할래?
+- One day, in the taxi home. I found that I didn't have any money.: 어느날, 집으로 가는 택시 안에서 내가 돈이 없다는 것을 발견했어.
+- I left my wallet in my office.: 지갑을 사무실에 두고 왔어.
+- I arrived home and had to get some money.: 집에 도착했고, 난 돈을 가져와야만 하지.
+- So, I say to the taxi driver. Could you wait a little?: 그래서 난 택시기사에게 말해요. 잠깐 기다려 주시겠어요?
+    - Could you wait a little?: 잠깐 기다려 주시겠어요?
+- You're at a clothing store.: 당신은 옷 가게에 있어요.
+- You are trying on a dress in the fitting room.: 탈의실에서 옷을 입어보는 중이에요.
+- But you can't zip in the back.: 그런데 등 뒤에 있는 지퍼를 올릴수 없어요.
+- You need someone's help. So you call out.: 당신은 누군가의 도움이 필요해요. 그래서 소리쳐요.
+    - Could you help me?: 좀 도와 주시겠어요?
+- You're asking a man for directions.: 당신은 한 남자에게 길을 물어보고 있어요.
+- He is kind but speaking too fast.: 그는 친절하지만 말하는것은 매우 빨라요.
+- You can't understand his words.: 너는 그의 단어를 이해할수 없어요.
+- In this case you can say, Could you speak more slowly?: 이럴때, 당신은 말해요. 좀더 천천히 말해주시겠어요?
+    - Could you speak more slowly?: 좀 더 천천히 말해주시겠어요?
+- It's important to be polite, right?: 예의를 갖추는건 중요합니다. 그렇죠?
+- Now you can ask politely with the expression "Could you~?" 이제 여러분은 'Could you~?'표현을 써서 공손하게 물어볼수 있어요.
+- Don't forget this expression!: 이 표현을 잊지 마세요!
+- Could you move your car?: 차를 좀 빼주시겠어요?
+- I have to park here: 여기에 주차를 해야 하거든요.
+- I can't here you.: 잘 못 알아 듣겠어요.
+- Can you speak more louldly?: 좀 더 크게 말씀해 주시겠어요?
+
+## Sentence
+- 이 곳에서 기다려 주시겠어요?: Could you wait here?
+- 철자를 불러 주시겠어요?: Could you spell that?
+- 더 천천히 말씀해 주시겠어요?: Could you speak more slowly?
+- 저를 도와 주시겠어요?: Could you help me?
+- 다시 말씀해 주시겠어요?: Could you tell me again?
+- 가방좀 보여 주시겠어요?: Could you show your bag?
+- 조용히 좀 해 주시겠어요?: Could you be quiet.
+- 신용카드 주시겠어요?: Could you give me your credit card.
+- 제이슨에게 전화해 주시겠어요?: Could you call Jason.
+- 조금더 크게 말씀해 주시겠어요?: Could you speak more loulder?
+- 창문좀 닫아 주시겠어요?: Could you close the window?
+- 신분증 먼저 보여주시겠어요?: Could you show your ID first?
+- 예약해 주시겠어요?: Could you make a reservation?
+
+## Pratice
+- Hi, this is ABC airline.: 안녕하세요 ABC항공사 입니다.
+- How can I help you?: 무엇을 도와 드릴까요?
+- I missed my flight to London.: 런던행 비행기를 놓쳤어요.
+- But I must go to London by this friday.: 그렇지만 나는 런던에 이번주 금요일까지 가야만해요.
+    - Could you show your ID first?: 신분증 먼저 보여주시겠어요?
+- Oh, we can refund your ticket.: 오, 환불가능한 티켓이네요.
+- And, there is a flight to London.: 그리고 런던으로 가는 비행기표가 있어요.
+- It's at 7:00 pm.: 저녁 7시행입니다.
+- That's great!: 그것 좋네요.
+    - Could you make a reservation?: 예약좀 해주시겠어요?
+- Sure.: 물론이죠.
+- Your seat is in row C.: 당신의 좌석은 C열입니다.
+- Would you like a window seat?: 창가가 좋은신가요?
+- Yes, I would like a window seat.: 네 창가 자리가 좋아요.
+    - Could you give me your credit card?: 당신의 신용카드 좀 제게 주시겠어요?
+- Here you are.: 여기 있습니다.
+- Ok. You are all set.: 모든 준비는 끝났습니다.
+- You broading time is 6:20 at Gate 31.: 당신은 31번 게이트에서 6:20분까지 탑승해주세요.
+- Thank you.: 감사해요.
+- Have a safe trip, sir.: 선생님 안전한 여행 되세요.

@@ -4,7 +4,7 @@
 - 저 티나라는 이름으로 예약했어요: I have a reservation under the name Tina.
 - 마이크라는 이름으로 예약했어요: The reservation is under the name Mike.
 
-## conversation1
+## conversation01
 - Good afrer noon and welcome to Hotel Max.: 안녕하세요. 맥스호텔에 오신것을 환영합니다.
 - How may I help you?: 어떻게 도와드릴까요?
 - I'd like to check in please.: 체크인 하고 싶습니다.
@@ -20,7 +20,7 @@
 - 런던행 티켓을 예약하고 싶어요.: I'd like to reservation for a ticket to London.
 - 예약은 어디에서 할 수 있나요?: Where Can I make a reservation here.
 
-## conversation2
+## conversation02
 - We have a breakfast buffect in the morning from 7 to 10.: 아침 7시부터 10시까지 조식 뷔페가 제공됩니다.
 - Would you like to make a reservation for the breakfast?: 조식을 예약하시겠어요?
 - Sure. I'd like to make a reservation for tomorrow. 네, 내일 아침으로 예약해주세요.
@@ -31,7 +31,7 @@
 - Yes, please.: 네 부탁드려요.
 - Sure.: 물론이죠.
 
-## conversation3
+## conversation0301
 - Good afrer noon and welcome to Hotel Max.: 안녕하세요. 맥스호텔에 오신것을 환영합니다.
 - How may I help you?: 어떻게 도와드릴까요?
 - I'd like to check in please.: 체크인 하고 싶습니다.
@@ -60,7 +60,7 @@
 - Thank you for staying at Hotel Max.: 맥스 호텔을 찾아 주셔서 감사합니다.
 - Enjoy Your stay: 즐거운시간 보내세요.
 
-## converstion4
+## converstion0302
 - Good afrer noon and welcome to Hotel Max.: 안녕하세요. 맥스호텔에 오신것을 환영합니다.
 - How may I help you?: 어떻게 도와드릴까요?
 - I'd like to check in please.: 체크인 하고 싶습니다.

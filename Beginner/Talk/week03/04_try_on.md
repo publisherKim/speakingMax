@@ -32,7 +32,7 @@
 - It will take no longer than two minutes.: 2분도 안걸릴거에요.
 - I'll let you know when I'm done.: 다 하면 알려드릴께요.
 
-## Conversation03-01
+## Conversation0301
 - Hello: 안녕하세요.
 - Feel free to look around: 편하게 둘러보세요.
 - We have all different kinds of accessories.: 우리는 모두 다른 종류의 악세서리를 가지고 있어요.
@@ -64,7 +64,7 @@
 - It will take no longer than two minutes.: 2분도 안걸릴거에요.
 - I'll let you know when I'm done.: 다 하면 알려드릴께요.
 
-## Conversation03-02
+## Conversation0302
 - Hello: 안녕하세요.
 - Feel free to look around: 편하게 둘러보세요.
 - We have all different kinds of accessories.: 우리는 모두 다른 종류의 악세서리를 가지고 있어요.
