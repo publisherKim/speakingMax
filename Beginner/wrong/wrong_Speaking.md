@@ -7,3 +7,4 @@
 
 ## 20220903
 - 이 모자는 어때요?: How about this hat?
+    - what about this hat x
