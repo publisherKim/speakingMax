@@ -64,4 +64,3 @@
 - How about the gray color? It is simple and chic. 회색은 어떄? 이것은 단순하고 날씬해보여.
 - Oh, that look great!: 오 그것 매우 좋아보여!
     - I will take that gray skirt!.: 저 회색 치마 취할께!
-- 
