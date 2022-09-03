@@ -20,6 +20,10 @@
 - 나 오늘 파티에 가지 않을거야.: I won't go the party today.
 - 나 집에 가지 않을거야.: I won't go home.
 - 나 집에 가고 싶어.: I want to go home.
+- 나는 내 차를 고치지 않을거야.: I won't fix my car.
+- 나는 내 차를 고치고 싶어.: I want to fix my car
+- 그들은 내일 너를 방문하지 않을거야.: They won't visit you tomorrow.
+- 그들은 내일 너를 방문하길 원해.: They want to visit you tomorrow.
 
 ## Conversation02
 - You won't find this anywhere else.: 저희 가게에서만 판매하는 제품이에요.
