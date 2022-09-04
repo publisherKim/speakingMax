@@ -34,7 +34,7 @@
     - Hold the shrimp please.: 새우는 빼주세요.
 - You don't like shrimp?: 새우 싫어하세요?
 - Then, I'll change you order to beef.: 소고기로 바꾸어 드릴께요.
-- It's a reallu popular dish.: 정말 인기가 많은 메뉴에요.
+- It's a really popular dish.: 정말 인기가 많은 메뉴에요.
 - Would you like something to drink?: 음료는 뭘로 하실래요?
 
 ## Sentence02
@@ -64,7 +64,7 @@
     - Hold the shrimp please.: 새우는 빼주세요.
 - You don't like shrimp?: 새우 싫어하세요?
 - Then, I'll change you order to beef.: 소고기로 바꾸어 드릴께요.
-- It's a reallu popular dish.: 정말 인기가 많은 메뉴에요.
+- It's a really popular dish.: 정말 인기가 많은 메뉴에요.
 - Would you like something to drink?: 음료는 뭘로 하실래요?
     - Yes, I'll take a lemonade, please.: 네, 레몬네이드로 할께요.
 - Sure.: 물론이죠.
