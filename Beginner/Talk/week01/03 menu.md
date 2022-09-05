@@ -1,14 +1,14 @@
 ## menu: 매뉴판
 - 메뉴판좀 주시겠어요?: Can I have a menu please.
-- 메뉴판좀 건네어 줄래요?: Could you pass me the menu.
-- 음식종류가 엄청 많이 있어.: There are so many things on the menu.
+- 메뉴판좀 건네 줄래요?: Could you pass me the menu.
+- 음식 종류가 엄청 많이 있어.: There are so many things on the menu.
 
 ## Conversation01
 - This is a really famous hot dog place.: 여기 정말 유명한 핫도그 가게야.
 - They have the best hot dogs.: 진짜 맛있는 핫도그를 팔거든.
     - I'm really excited to try it.: 먹어볼 생각에 신이 나.
 - Here is the menu.: 여기 메뉴판이야.
-- Tell me what you'd like to try.: 뭘 먹어보고 싶은지 말해 줘.
+- Tell me. What you'd like to try.: 뭘 먹어보고 싶은지 말해 줘.
 - I'll order for both of us.: 내가 우리 것 주문할께.
 - What are you getting?: 뭐 먹을거야?
     - There are so many choices!: 선택지가 너무 많을걸!
@@ -53,7 +53,7 @@
 - They have the best hot dogs.: 진짜 맛있는 핫도그를 팔거든.
     - I'm really excited to try it.: 먹어볼 생각에 신이 나.
 - Here is the menu.: 여기 메뉴판이야.
-- Tell me what you'd like to try.: 뭘 먹어보고 싶은지 말해 줘.
+- Tell me. What you'd like to try.: 뭘 먹어보고 싶은지 말해 줘.
 - I'll order for both of us.: 내가 우리 것 주문할께.
 - What are you getting?: 뭐 먹을거야?
     - There are so many choices!: 선택지가 너무 많을걸!
@@ -64,7 +64,7 @@
 - Great choice.: 좋은 선택이야.
 - It has two sausages in one bun.: 빵 하나에 소시지가 두 개 들어 있거든.
 - Please wait here.: 잠깐만 기다려.
-- I'll be right black with our hot dogs.: 내가 얼른 핫도그 사 올께.
+- I'll be right order with our hot dogs.: 내가 얼른 핫도그 사 올께.
 - here's your hot dog.: 이거 네 핫도그 여기 있어.
     - Thank you: 고마워
 - Try it: 먹어봐
@@ -96,14 +96,14 @@
 - Really?: 정말?
 - I'm getting the same thing!: 나돗 같은것을 골랐어!
 - Please wait here.: 잠깐만 기다려.
-- I'll be right black with our hot dogs.: 내가 얼른 핫도그 사 올께.
+- I'll be right order with our hot dogs.: 내가 얼른 핫도그 사 올께.
 - here's your hot dog.: 이거 네 핫도그 여기 있어.
     - Thank you: 고마워
 - Try it: 먹어봐
 - What do you think?: 너의 생각은 어때? 
     - It's really juicy!: 육즙이 정말 풍부해!
 - I think so, too.: 나도 그렇게 생각해.
-- I heard they use homemade sausages.: 그들은 손주제작한 소세지를 쓴다고 들었어.
+- I heard they use homemade sausages.: 그들은 손주 제작한 소세지를 쓴다고 들었어.
     - Thanks for bring me here!.: 여기 데려와줘서 고마워!
 - No problem.: 고맙긴.
 - I'm really happy to be here with you.: 너와 함께 와서 정말로 행복해.
