@@ -1,5 +1,5 @@
 ## It depends on: ~에 달려 있다.
-- 그건 상황에 따라 달라.: It depends on the situtation.
+- 그건 상황에 따라 달라.: It depends on the situation.
 - 교통 사정에 따라 다르죠.: It depends on the traffic.
 - 날씨에 따라서 달라질것 같아.: It depends on the weather.
 
