@@ -38,3 +38,4 @@
 - Are they worried?: 그들은 걱정하나요?
 - We are hungry.: 우리는 배가 고파요.
 - Are they strong?: 그들은 강한가요?
+- She is healthy.: 그녀는 건강해요.
