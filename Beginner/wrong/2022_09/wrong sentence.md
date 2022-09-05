@@ -23,3 +23,11 @@
     - How about the tour? X
 - 저건 제 아이디어에요.: That is my idea.
     - This is my idea. X
+
+## 20220905
+- 창문을 닫아 주시겠어요?: Could you close the window?
+    - Do you close the window?
+    - Do Could Would 주의
+- 바깥 날씨가 추워요.: It's cold outside.
+    - It's cold
+    - outside 생각안남.
