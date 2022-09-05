@@ -1,12 +1,9 @@
 ## Voca
 - subject: 주제
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- special: 특별한
+- brand-new: 최신식의 
+- already: 이미
+- fancy: 멋진
 
 ## Sentence
 ### don't + 동사: 부정문 + 동사
