@@ -9,7 +9,7 @@
     - Yes, I'd like to rent one.: 네, 한대 빌리고 싶어요.
 - That's a great idea.: 그거 좋은 생각이에요.
 - It feels great to ride a bike along the beach.: 해변에서 자전거 타면 정말 좋거드요.
-    - I'd like to rent that one.: 저 자전거를 빌리고 시퍼요.
+    - I'd like to rent that one.: 저 자전거를 빌리고 싶어요.
 - I'm sorry, but that one is already booked.: 죄송하지만 그 자전거는 이미 예약이 되어 있어요.
 
 ## Sentence01
@@ -41,7 +41,7 @@
 - 정말 정직하시네요.: That's so honest of you.
 - 정말 무례하시군요.: That's so rude of you.
 - 정말 영리하시네요.: That's so clever of you.
-- 정말 사려깊으시네요.: That's so thoughtful of you.
+- 정말 사려깊네요.: That's so thoughful of you.
 
 ## Conversation0301
 - Excuse me.: 실례합니다.
@@ -57,7 +57,7 @@
 - Okay.: 알겠어요.
 - It's 8 dollars per hour for this bike. 이 자전거는 시간당 8 달러에요.
 - How many hours would you like to rent the bike for?: 몇시간 동안 빌리시겠어요?
-    - I'd like to rent for an hour.: 한시간 동안 빌릴께요.
+    - I'd like to rent for an hour.: 한 시간 동안 빌릴께요.
 - Okay, great.: 네 좋아요.
 - There's an extra charge if you return the bike late. 자전거를 늦게 반납하면 추가 요금이 발생해요.
 - so please keep an eye on the time.: 시간에 유의해 주세요.
