@@ -19,7 +19,7 @@
 - I can recommend a few.: 제가 몇군데 추천해 드릴께요.
     - That would be great!: 좋아요!
 - I have to ask you a couple of questions.: 몇가지 질문을 드릴께요.
-- Do you like your coffee strong or weak?: 커피를 강하게 또는 약하게 드시나요?
+- Do you like your coffee strong or weak?: 커피를 진하게 또는 연하게 드시나요?
     - I like my coffee strong.: 진하게 먹어요.
 - So do I.: 나도 역시 그래.
 - It's really enerzing, especially in the mornings.: 정말 기운을 복돋아주죠. 특히 아침에는요.
