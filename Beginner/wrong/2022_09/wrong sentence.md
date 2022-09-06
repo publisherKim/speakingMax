@@ -31,3 +31,9 @@
 - 바깥 날씨가 추워요.: It's cold outside.
     - It's cold
     - outside 생각안남.
+
+## 20220906
+- 어디서 오셨나요?: Where do you come from?
+    - Where are you come from?(이것도 맞는 문장 같긴 한데...)
+- 어디서 점심을 드시나요?: Where do you have lunch?
+    - Where do you eat for lunch?(이것도 맞는 문장이 맞네)
