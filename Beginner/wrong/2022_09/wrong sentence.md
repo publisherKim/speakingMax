@@ -37,3 +37,9 @@
     - Where are you come from?(이것도 맞는 문장 같긴 한데...)
 - 어디서 점심을 드시나요?: Where do you have lunch?
     - Where do you eat for lunch?(이것도 맞는 문장이 맞네)
+
+## 20220907
+- Are you goring to ~?: ~할건가요?
+    - 완전 기억에서 사라짐
+- 미팅에 참석할 건가요?: Are you going to attend the meeting?
+- 오늘 저녁에 그에게 전화할건가요?: Are you going to call him tonight?
