@@ -43,3 +43,11 @@
     - 완전 기억에서 사라짐
 - 미팅에 참석할 건가요?: Are you going to attend the meeting?
 - 오늘 저녁에 그에게 전화할건가요?: Are you going to call him tonight?
+
+## 20220908
+- 여가 시간은 어떻게 보내나요?: How do you spend your lesuire time?
+    - How about you spend your lesuire time? X
+- 거기 어떻게 취직하신건가요? : How do you get that job?
+    - How do you job?: 당신은 어떻게 일합니까?: X
+- 너무 신나요.: I'm so excited. 
+    - I was excited: 나는 신났어요.
