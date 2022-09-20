@@ -50,4 +50,28 @@
 - 거기 어떻게 취직하신건가요? : How do you get that job?
     - How do you job?: 당신은 어떻게 일합니까?: X
 - 너무 신나요.: I'm so excited. 
-    - I was excited: 나는 신났어요.
+    - I was excited: 나는 신났어요.\
+
+## 20220920
+- 저는 보고서를 작성하고 있어요.: I am writing a report.
+- 저는 샐러드를 먹고 있어요.: I'm eating a salad.
+- 저는 너무 신나요: I'm so exctied.
+- 당신은 직장미 마음에 드나요?: Do you like your workplace?
+- 포장하실건가요?: Do you want it to go?
+- 지도를 구매하셨나요?: Did you buy a map?
+- 희의에 참석하실 건가요?: Are you going to attend a meeting?
+- 오늘 저녁 그에게 전화거실 건가요?: Are you goring to call him tonight.
+- 어디서 오셨나요?: Where do you come from?
+- 여가 시간은 어떻게 보내시나요?: How do you spend your lesuire time?
+- 거기 어떻게 취칙하신건가요?: How do you get that job?
+- 비가 오고 있어요.: It's ranning.
+- 바깥 날씨가 추워요.: It's cold outside.
+- 표 좀 보여주시겠어요?: Could you show me your ticket?
+- 창문을 당아 주시겠어요?: Could you close the winow?
+- 희의는 어땠어요?: How was the meeting?
+- 오늘 시험 어때써요?: How was the test today?
+- 회의를 합시다: Let's have a meeting.
+- 캠핑가요.: Let's go camping.
+- 집에가도 될까요?: Can I go home?
+- 쉬는게 어때요?: How about a break?
+- 런던은 어때요?: How aout London?
