@@ -1,0 +1,67 @@
+## I can
+- Today we will run how to use I can.: 오늘 우리는 I can을 어떻게 사용하는지 배울거야.
+- You can talk about your abilities with this expression.: 너는 너의 능력에 관하여 이표현과 함게 말할 수 있어.
+- In my case, I can swim in the sea.: 내 경우에는 나는 바다에서 수여을할 수 있어.
+- I can make spaghetti. I can play the guitar.: 나는 스파게티를 만들수 있어. 나는 기타를 연주할 수 있어. 
+- Yes! I can do many things!: 그래! 나는 많은 것을 할 수 있어!
+- I like music. I especialy love the guitar.: 나는 음악을 좋아해. 나는 특별히 기타를 사랑해.
+- I pratice guitar every day.: 나는 기타를 매일 연습해.
+- I am a guitarlist in my band.: 나는 내 밴드에서 기타리스트야.
+- When I talk about myself, I say,: 내가 나에 관하여 말할때, 나는 말해,
+- I can play the guitar.: 나는 기타를 연주할 수 있어.
+- You want to join a baseball team.: 너는 야구 팀에 가입하길 원해.
+- You are very fast runner.: 너는 달리기가 매우 빨라.
+- To talk about your talent, you can say,: 너의 재능에 관하여 말할때, 너는 말 할수 있어,
+- I can run very fast.: 나는 매우 빨리 달릴 수 있어.
+- You're on the plane.: 니가 비행기에 타고 있어.
+- A pretty girl sits next to you.: 예쁜소녀가 니 옆에 앉아 있어.
+- She wants to watch a movie.: 그녀는 영화를 보기를 원해.
+- But she doesn't know how to do it.: 그러나 그녀는 어떻게 해야하는지를 몰라.
+- In this case, you can say, I can help you.: 이러한 경우에, 너는 말할수 있어, 내가 당신을 도와줄께.
+- Now you know how to use I can.: 이제 너는 I can을 어떻게 쓰는지 알았어.
+- Don't forget this important expression.: 이 중요한 표현을 잊지마.
+- You will use it a lot, I hope someday you say this,: 너는 이것을 많이 사용하게 될거야, 나는 니가 이렇게 말하게 되길 희망해.
+- I can speak English well.: 나는 영어를 잘 말해요.
+- Are you hungry?: 너는 배가 고프니?
+- I can cook for you.: 나는 널 위해 요리할수 있어.
+- Don't worry.: 걱정마
+- I can fix your computer.: 내가 너의 컴퓨터 고쳐줄께.
+
+## Sentence
+- I can play the guitar.: 나는 기타를 연주할수 있어. 
+- I can run fast.: 나는 빨리 달릴수 있어
+- I can help you.: 내가 너를 도와줄께.
+- I can speak English.: 나는 영어를 말할수 있어.
+- I can play the piano.: 나는 피아노를 연주할수 있어.
+- I can run very fast.: 나는 매우 빨리 달리수 있어.
+- I can swim.: 나는 수영을 할 수 있어.
+- I can drive.: 나는 운전을 할 수 있어.
+- I can make sandwiches.: 나는 샌드위치 만들수 있어.
+- I can jump.: 나는 점프 할 수 있어.
+- I can paly soccer.: 나는 축구 할 수 있어.
+- I can sing.: 나는 노래 할 수 있어.
+
+## Pratice
+- Do you have any plans this weekend?: 이번 주말에 너 계획있니?
+- No, I don't What's up?: 아니 나는 할게 없어 무슨 일이니?
+- Let's go to the beach this weekend.: 이번 주말에 해변에 가자.
+- The weather is great these days,: 요즘 날씨가 너무 좋아.
+- That's great idea.: 그거 좋은 생각이야.
+- I'm going to ask jack and Amy, too.: 나는 잭과 아미에게도 물어볼거야.
+- Can you swim?: 너 수영할줄 아니?
+- Yes.: 응
+- I can swim.: 나 수영할 수 있어.
+- I want to go surfing too!: 나는 서핑도 하길 원해!
+- Great! We will have a good time there.: 멋지군! 우리는 거기서 좋은 시간을 보내자.
+- By the way how do we get there?: 그런데 우리 어떻게 거기에 가지?
+- I think we need a car.: 내생각에 우리는 차가 필요해.
+- Don't worry. I'm going to rent a car.: 걱정마. 나는 차를 빌릴거야.
+- Then, Who can drive the car?: 그러면 누가 운전할 건데?
+- I don't have a driver's license.: 나는 운전면허가 없어.
+- I have a driver's license.: 나는 운전면허가 있어.
+- I can drive.: 나는 운전할 수 있어.
+- That's cool.: 그거 멋지구나.
+- Then, I'll bring something for lunch.: 그러면 내가 점심을 가져갈께.
+- I can make sandwiches.: 나는 샌드위치를 만들수 있어.
+- Great! Theres a barbeque palce near the beach.: 대단해! 비치 근처에 바베큐를 할 장소가 있어.
+- We can cook dinner there!: 우리는 거기서 저녁 요리 할 수 있어.

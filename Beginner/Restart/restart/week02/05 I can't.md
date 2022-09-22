@@ -1,0 +1,61 @@
+## I can't
+- It's time to learn about the expression I can't.: I can't라는 표현에 대해서 배울 시간이야.
+- You use this expression when you don't have the ability to do something.: 니가 무어가 할 능력이 없을때 이표현을 사용해.
+- In my case I can't swim.: 내 경우에는 나는 수영을 할수 없어.
+- I can't ride a roller coaster.: 나는 롤러코스터를 못 타.
+- And I can't watch a horror movie.: 그리고 나는 무서운 영화를 못 봐.
+- I'm afraid of them!: 나는 그것들이 무서워!
+- I have my driver's license.: 나는 면허를 가지고 있어.
+- But I don't drive a car.: 그러나 나는 운전을 못해.
+- In fact, I'm afraid of driving.: 사실 나는 운전이 무서워.
+- When somebody ask me to drive, I say, I can't drive.: 누군가 나에게 운전을 요청한다면 나는 말할래, 나 운전 못해요.
+- You are infront of the roller coaster.: 니가 롤러 코스트 앞에 있어.
+- Your friends are excited and say, Let's go!: 너의 친구들이 기대에 차서 말해 우리 가자!
+- But you don't want to ride it.: 그러나 너는 타지 않기를 원해.
+- So, you say to them, I can't ride it.: 그러면 너는 그들에게 말해, 나는 이것을 탈 수 없어.
+- You wear new shoes today.: 너는 오늘 새 신발을 신었어.
+- But these new shoes hurt your feet.: 그러나 이 새로운 신발들은 너의 발에 상처를 줬어.
+- It's really hard to walk.: 이것은 정말로 걷는걸 어렵게 해.
+- In this case, you can say I can't walk.: 이런 상황에서 너는 걸을수 없다고 말 할 수 있어.
+- Now you know how to use the expression cna't.: 이제 너는 can't라는 표현의 사용법을 알았어.
+- It will be very useful when you speak in Enghlish.: 영어 안에서 말할때 이것은 매우 유용한 표현이야.
+- Don't forget!: 잊지마!
+- She speaks quickly.: 그녀는 빨리 말해요.
+- I can't understand her.: 나는 그녀를 이해할 수 없어.
+- This coffee is to hot.: 이 커피는 매우 뜨거워.
+- I can't drink it.: 나는 마실수 없어.
+
+## Sentence
+- I can't drive.: 나는 운전할 수 없어.
+- I can't ride it.: 나는 이것을 탈 수 없어.
+- I can't walk.: 나는 걸을 수 없어.
+- I can't swim.: 나는 수영 할 수 없어.
+- I can't speak chinese.: 나는 중국어를 말할 수 없어.
+- I can't sing well.: 나는 노래를 잘 못해요. 
+- I can't play the piano.: 나는 피아노를 못쳐요.
+- I can't dance well.: 나는 춤을 잘 못춰요.
+- I can't speak English.: 나는 영어를 말할수 없어요.
+- I can't dance.: 나는 춤을 못춰요.
+- I can't eat carrots.: 나는 당근을 못먹어요.
+
+## Pratice
+- Do you know my dream?: 넌 내꿈을 아니?
+- Hmm, I don't know.: 흠, 나는 모르지.
+- What is it?: 뭔데?
+- I want to be a singer.: 가수가 되길 원해.
+- Really? Can you sing well?: 정말로 너 노래 잘하니?
+- No I can't sing well: 아니 잘 못불러.
+- But I love singing.: 그러나 노래부르는걸 사랑해.
+- I'll pratice day and night.: 나는 밤낮으로 연슬할거야.
+- Then can you play the paino?: 그러면 너 피아노는 연주하니?
+- No,: 아니
+- I can't play the piano.: 나는 피아노를 못쳐.
+- But I play the guitar.: 그러나 기타는 연주해.
+- I started to learn last week.: 지난주부터 배우기 시작했어.
+- Hmm, can you dance well?: 흠, 춤은 추니?
+- As you know most singers can dance.: 너도 알다싶이 대부분의 가수들은 춤춰.
+- No,
+- Hmm, can you dance well?: 흠, 춤은 잘추니?
+- I can't dance well.: 나 춤 잘 못춰.
+- I am a bad dancer.: 나 나쁜 춤꾼이야.
+- Do you really want to be a singer?: 정말로 가수가 되고 싶은거니?
