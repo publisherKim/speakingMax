@@ -67,9 +67,9 @@
 - Wow! That's fantastic!: 와우 그거 참 환상적이네!
 - I love paris.: 나는 파리를 사랑해.
 - There are so many beautiful places!: 거기에 매우 아름다운 장소들이 있어!
-- Do you have a tourguide?: 여행 안내자가 있니?
+- Do you have a tour guide?: 여행 안내자가 있니?
 - No.: 아니
-- I don't have a tourguide.: 나는 여행 안내자가 없어.
+- I don't have a tour guide.: 나는 여행 안내자가 없어.
 - I want to travel by myself.: 내 스스로 여행을 하길 원해.
 - That's great!: 그거 멋지구나!
 - I've been to Paris before.: 나 파리를 전에 가본적이 있어.
