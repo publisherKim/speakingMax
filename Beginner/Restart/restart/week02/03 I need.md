@@ -1,0 +1,66 @@
+## I need I don't need
+- This time we will learn the expression I need and I don't need.: 이번 시간에는  I need I don't need라는 표현에 대해서 우리는 배울거야.
+- You think you want something and you must have something.: 너는 무언가를 원하고 그것을 가져야 한다고 생각해.
+- Then you can say that with "I need": 그러면 넌 I ndeed라고 말할 수 있어.
+- It's cold. I need a sweater.: 날씨가 추워. 나는 스웨터가 필요해.
+- I'm sleepy. I need a coffee.: 나는 졸려. 나는 커피가 필요해.
+- I feel sick. I need medicine.: 나는 아퍼. 나는 약이 필요해.
+- When you don't think it's necessary, you can say that with I don't need.: 니가 필요하지 않다고 생각 했을때 너는 I don't need와 함께 말할 수 있어. 
+- I don't need a sweater.: 나는 스웨터가 필요로 하지 않아.
+- I don't need a coffee.: 나는 커피가 필요하지 않아.
+- I don't need medicine.: 나는 약이 필요 없어.
+- Let's pratice together.: 함께 연습해 보자.
+- I need your attention.: 나는 너의 집중이 필요해.
+- I working late at night. I'm tired.: 나는 밤에 늦게까지 일했어. 나는 피곤해.
+- But I have a lot of work.: 그러나 나는 많은 일을 가지고 있어.
+- When I feel stressed. I eat some chocolate.: 나는 스트레스를 느낄때 약간의 초컬릿을 먹어. 
+- It helps me a lot. Now I need cocolate.: 이것은 나에게 많은 도움을 줘. 이제 나는 초컬릿이 필요해.
+- You live in a large city.: 너는 큰 도시에 살고 있어.
+- You can take a subway or a bus anywhere.: 너는 지하철이나 버스를타고 어느 곳이나 갈수 있어.
+- In this case, you can say I don't need a car.: 이런 상황에서 너는 말할 수 있어 나는 차가 필요 없어요.
+- You have a job interview soon.: 너는 곧 직업 면접이 있어.
+- But there is a problem. You don't have a suit.: 그러나 거기에 문제가 있어. 너는 정장을 가지고 있지 않아.
+- You only have T-shirts and jeans.: 너는 오직 청바지와 티가 있어.
+- In this case, you can say I need a suit.: 이런 상황에서 너는 정장이 필요해 라고 말할 수 있어.
+- Now, you can say I need your help when you are in trouble.: 이제 너는 말할수 있어 니가 곤경에 처했을때 당신이 나를 좀 도와주세요.
+- This expression can be very helpful for you!: 이 표현을 너에게 매우 도움될 수 있어!
+- I hope you can say this expression a lot.: 나는 니가 이표현을 많이 말할수 있길 희망해.
+- I need a new bag.: 나는 새로운 가방이 필요해.
+- It's too old.: 이것은 너무 낡았어.
+- I don't need your help.: 나는 당신 도움 필요 없어.
+- I can do it myself.: 나는 혼자 할수 있어.
+
+## Sentence
+- I need chocolate.: 나는 초컬릿이 필요해.
+- I don't need a car.: 나는 차가 필요 없어.
+- I need a suit.: 나는 정장이 필요해.
+- I need coffee.: 나는 커피가 필요해. 
+- I don't need water.: 나는 물이 필요 없어.
+- I need a phone.: 나는 전화기가 필요해.
+- I need a smart phone.: 나는 스마트폰이 필요해.
+- I don't need money.: 나는 돈이 필요 없어.
+- I need candy.: 나는 사탕이 필요해.
+- I need money.: 나는 돈이 필요해.
+- I don't need a watch.: 나는 시계가 필요 없어.
+
+## Pratice
+- Do you need some help? 너 도움 필요로 하니?
+- We have new phones on sale right now.: 우리는 지금 새포운 전화기들을 세일중이야.
+- Hello.: 안녕하세요.
+- I need a new phone.: 저 새로운 전화기 필요해요.
+- My phone is broken.: 내 전화기는 고장 났어.
+- Alright. You are in the right place!: 좋아요. 올바른 장소에 왔어요!
+- What kind of phone do you want?: 어떤 폰 원하니?
+- Well: 글쎄
+- I need a smartphone.: 나는 스마트폰 필요해.
+- Alright. we have perfect one for you.:좋아. 우리는 너를위한 완변학 하나를 가지고 있어.
+- It's most recent one.: 이것은 최신기종중 하나야.
+- It's very popular.: 이것은 매우 인기 있어.
+- Oh, I like this one.: 오우 이것 맘에 들어.
+- I will get this one.: 이거 고를께.
+- Good choice.: 좋은 선택이야.
+- This is alos on sale now.: 이것은 또한 세일 중이야.
+- So you can buy it for only 199 dollars!: 단지 199달러에 구매할 수 있어.
+- Do you need any additional batteris?: 추가 배터리 필요로 하니?
+- No, thank you.: 고맙지만 사양할께.
+- I don't need more batteries.: 나는 추가배터리는 필요 없어.
