@@ -1,0 +1,59 @@
+## I want to
+- Let's learn new expression I want to.: I want to 라는 새로운 표현에 대해 배우자.
+- You can explain your wishes with this expression.: 너는 너가 원하는 것을 이 표현과 함께 설명할 수 있어.
+- My wishes are... I want to sleep more.: 내가 원하는 것들... 나는 잠을 더 많이 자길 원해.
+- I want to have a dog.: 나는 강아지를 원해.
+- I want to speak Korean.: 나는 한국말 하길 원해.
+- And now, I want to talk with you in English.: 나는 이제 니가 영어와 함께 이야기 하길 원해.
+- Today is very hot. I'm running in a marathon.: 오늘 날씨 매우 더워. 나는 마라톤 하는 중이야.
+- I feel very thirsty.: 나는 매우 갈증을 느껴.
+- In this case, I can say, I want to drink water.: 이러한 경우에 나는 말할 수 있어, 나는 물을 마시길 원해.
+- Your laptop is old and too haevy.: 너의 토트북을 낡고 너무 무거워.
+- It takes a long time to open a file.: 파일 하나 여는 데도 오랜 시간이 걸려.
+- You need a new one.: 너는 새로운 것 하나가 필요해.
+- In this case, you can say, I want to buy a new laptop.: 이러한 경우에 니가 말하길 나는 새로운 노트북 사길 원해.
+- You hear some great news!: 너는 약간 멋진 소식을 들었어!
+- Your favorite actor will visit your city.: 너의 선호하는 배우가 너의 도시를 방문할거야.
+- It's great chance to see him!: 그를 볼 큰 기회야!
+- In this case, you can say, I want to see him.: 이러한 경우에 너는 말할 수 있어 나는 그를 보길 원해.
+- Now you can use the expression "I want to": 이제 너희는 I want to라는 표현을 사용할 수 있어.
+- With this expression, you can say many more things in English!: 이 표현과 함께 너는 영어로 더많을 말을 할 수 있을거야.
+- I'm hungry.: 나 배고파.
+- I want to have pizza.: 나는 피자를 원해.
+- I want to take a picture with you.: 나는 너와 사진찍기를 원해.
+
+## Sentence
+- I want to drink water.: 나는 물을 마시길 원해.
+- I want to buy a laptop.: 나는 노트북 사기를 원해.
+- I want to see him.: 나는 그를 보길 원해.
+- I want to drink coffee.: 나는 커피 마시기를 원해.
+- I want to see her.: 나는 그녀를 보길 원해.
+- I want to buy this album.: 이 앨범을 사길 원해.
+- I want to sing.: 나는 노래 부를길 원해. 
+- I want to go to the concert.: 나는 콘서트에 가길 원해.
+- I want to eat hot dogs.: 나는 핫도그를 원해. 
+- I want to sleep.: 나는 잠을 자길 원해.
+- I want to buy a house.: 나는 집을 사길 원해.
+
+## Pratice
+- I want to buy this album: 나는 이 앨벌을 사고 싶어.
+- I love jamie.: 나는 제이미를 사랑해.
+- He is such a great singer.: 그는 위대한 가수야.
+- OH! is this new album?: 와! 이게 새로운 앨범이니?
+- I listen to him all the time.: 나는 매번 그의 노래를 들어.
+- I do, too!: 나도 역시 그래!
+    - so do I.
+- He has a beautiful voice.: 그는 멋진 목소리를 가졌어.
+- I want to sing like him.: 나는 그처럼 노래를 부르고 싶어.
+- What's your favorite song?: 니가 좋아하는 노래는 뭐니?
+- My favorite is Three of us.: 내가 선호하는 노래는 Three of us야.
+- Many people don't know it, but it is great song.: 많은 사람들은 잘 모르지만 위대한 노래야.
+- I love that song, too.: 나도 역시 그 노래 좋아해.
+- But I also love "Stars of Night.": 그러나 나는 또한 Stars of Night도 사랑해.
+- I really want to go to his concert.: 나는 그의 콘서트에 정말로 가기를 원해.
+- His concert would be wonderful.: 그의 콘서트는 정말 멋질거야.
+- I want to go there, too.: 나는 거기에 가길 역시 원해.
+- Tickets are very hard to get.: 표 얻기는 너무 어려워.
+- I will try!: 내가 시도해 볼께!
+- Let's go together.: 함께 가보자.
+- Okay!: 좋아!
