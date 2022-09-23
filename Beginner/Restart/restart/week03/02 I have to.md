@@ -1,0 +1,59 @@
+## I have to
+- Let's study new expression I have to.: I have to라는 새로운 표현에 대해 배워보자.
+- We use this expression when we must to do something.: 우리는 이 표현을 우리가 무언갈 해야만 할때 사용해.
+- I have to see a doctor.: 나는 의사를 만나야만 해.
+- I have to study English.: 나는 영어를 공부해야만 해.
+- I have to finish this work.: 이 일을 끝내야만 해.
+- Are you ready? Let's start.: 준비 되었니? 시작하자.
+- I get on the wrong bus.: 나는 버스를 잘못 탔어.
+- I don't want to be late for the meeting.: 나는 회의에 늦길 원하지 않아.
+- I don't have much time.: 나는 시간이 없어.
+- In this case, I have to take a taxi.: 이러한 경우에, 나는 택시를 타야만 해.
+- You have a cold. You go and see a doctor.: 너는 감기에 걸렸어. 너는 의사에게 가서 진찰을 보러가.
+- He says to you."Drink lots of water.": 그가 너에게 말하길, 물좀 많이 드세요.
+- So you say, I have to drink lots of water.: 그래서 니가 말하길, 나는 물을 많이 마셔야만 해.
+- You have a call from your friend.: 너는 너의 친구로부터 전화가 왔어.
+- He says, Let's have dinner.: 그가 말하길, 저녁 같이 먹자.
+- But you can't leave the office. You have work to do today.: 그러나 너는 사무실을 떠날수 없어. 너는 오늘 일을 해야만 해.
+- So, you say to him. I have to finish my work.: 그래서 너는 그에게 말하길, 나는 이을 다 끝내야만 해.
+- We have to do many things each day.: 우리는 날마다 해야할 것들이 많이 있어.
+- So "have to" is very useful expression.: 그래서 "have to"라는 표현은 매우 유용한 표현이야.
+- You have to remember it and keep practing!: 너는 기억해야하고 연습해야해.
+- I'm sick!: 나 아퍼.
+- I have to take medicine.: 나는 약을 먹어야만 해.
+- It's cold.: 나 추워.
+- I have to bring my jacket.: 나는 재킷을 가져와야만 해.
+- 
+
+## Sentence
+- I have to take a taxi.: 나는 택시를 타야만해. 
+- I have to drink water.: 나는 물을 마셔야 해.
+- I have to finish my work.: 나는 일을 끝내야해.
+- I have to buy new shoes.: 나는 새로운 신발을 사야해.
+- I have to go home.: 나는 집에 가야만해.
+- I have to work today.: 나는 일을 해야만해.
+- I have to clean my room.: 나는 내 방을 청소해야만해.
+- I have to leave.: 나는 떠나야만해.
+- I have to buy a present.: 나는 선물을 사야만해.
+- I have to finish my home work.: 나는 나의 숙제를 끝내야만 해.
+- I have to write a letter.: 나는 편지를 써야만해.
+
+## Pratice
+- Hey, julia?: 저기 줄리아?
+- Hey, robert?: 거기 로버트?
+- Are you busy tonight?: 너 오늘밤 바쁘니?
+- What's up?: 무슨 일이니?
+- Do you want to go to watch movie?: 영화보러 가는건 어때?
+- Movie?: 영화?
+- I'm sorry.: 미안해
+- I have to work today.: 나는 오늘 일을 해야해.
+- We can watch it at midnight!: 우리는 자정에 볼수 있을거야. 
+- Umm.: 음
+- Actually: 사실
+- I have to clean my room after work.: 나는 일끝나고 방 청소를 해야해.
+- Then, What about this Saturday?: 그러면 이번주 토요일은 어때?
+- Let's eat dinner together, too.: 저녁 함께 먹자.
+- I'm so sorry, Robert.: 정말 미안해 로버트
+- I have to leave on Saturday.: 나 토요일에 떠나
+- When are you free, then?: 그러면 언제 자유롭니?
+- May be 100 years from now?: 아마도 지금부터 백년후 쯤
