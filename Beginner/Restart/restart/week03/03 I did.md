@@ -1,0 +1,65 @@
+## I did
+- Hi, It's the start of the new day.: 안녕, 새로운 날이 시작되었어.
+- We'll learn how to say something about the past.: 우리는 과거에 관하여 어떻게 말하는지 배울거야.
+- Last night, yesterday, or last summer is the past.: 지난밤, 어제, 지난 여름들은 과거야.
+- When you talk about the past, 니가 과거에 관하여 말할때,
+- you should use the past from of the verb.: 너는 동사로부터 과거형을 이용해야할 필요가 있어.
+- You can make the past form of the verb by adding "-ed".: 동사에 -ed를 추가함으로써 과거형을 만들수 있어 너는.
+- play, played, watch, watched.: 플레이하다 플레이 했다. 보아. 보았어.
+- I traveled to Spain.: 나는 스페인을 여행했었어.
+- I moved to L.A: 나는 L.A로 이사갔어.
+- I watched the new.: 나는 뉴스를 봤어.
+- Yes, I talked about the past.: 그래, 나는 과거에 관하여 말했어.
+- I like sports.: 나는 운동을 좋아해.
+- When I was in high school, I was a member of the basketball team.: 내가 고등학교 다녔을때, 나는 농구팀의 멤버중 하나였어.
+- I was best player on my team.: 나는 나의팀 최고의 선수였어.
+- So, I can say, I played basketball well.: 그래서 내가 말하길, 나는 농구를 매우 잘했어.
+- You're with your friends. You're talking about last holiday.: 너는 너의 친구와 함께야. 너는 지난 휴일에 관하여 이야기 하고 있어.
+- You had a wonderful time in hawaii.: 너는 화와이에서 멋진 시간을 보냈어.
+- You want to talk about your experience in hawaii.: 너는 화와이에서 너의 경험에 관하여 이야기 하고 싶어해.
+- So, you say, I leared surfing.: 그래서 니가 말하길, 나는 서핑을 배웠어.
+- Your boyfriend sends you a text message,: 너의 남자친구가 너에게 문자 메세지를 보냈어,
+- I want to see Batman. What about tomottow?: 나 배트맨 보고 싶어 내일 어때?
+- But you watched the movie yesterday.: 그러나 너는 어제 이 영화를 시청했어.
+- In this case, you can say I watched the movie yesterday.: 이러한 경우에 너는 이렇게 말할 수 있어, 나 어제 이 영화 봤어.
+- I played, I watched, I talked.: 나는 경기를 해썽, 나는 봤어, 나는 말했어.
+- You learned to talk about past.: 너는 과거에 관하여 말하는걸 배웠어.
+- You will use this expression very often! Don't forget it.: 너는 이 표현을 매우 조종 사용하게 될거야! 이것을 잊미마.
+- I changed my plan.: 나는 계획을 바껐어.
+- Let's go shopping.: 우리 쇼핑 가자.
+- I learned Korean.: 나는 한국말 배웠어.
+- I can say Hi in korean.: 나는 한국말로 안녕이라고 할 수 있어.
+
+## Sentence
+- I played basketball well.: 나는 농구를 잘했어.
+- I learned surfing.: 나는 서핑을 배웠어.
+- I watched the movie yesturday.: 나는 영화를 어제 봤어.
+- I watched the movie.: 나는 영화를 봤어.
+- I learned Korean.: 나는 한국어를 배웠어.
+- I moved here yesterday.: 나는 어제 여기로 왔어.
+- I worked at ABC cafe.: ABC 카페이서 나는 일했어. 
+- I invited friends.: 나는 친구들을 초대했어.
+- I called my friend.: 나는 내 친구를 불렀어.
+- I played baseball.: 나는 야구를 했어.
+- I fixed the chair.: 나는 의자를 고쳤어.
+
+## Pratice
+- Hi neighbor I live next door.: 안녕 이웃아, 나는 내 앞집에 살아.
+- Nice to meet you.: 만나서 반가워.
+- Nice to meet you too.: 나도 만나서 반가워.
+- I moved here last week.: 나는 지난주에 이사왔어.
+- You look familiar.: 너 친숙해 보이는데.
+- Do you go to ABC University?: ABC대학 가봤니?
+- No.: 아니
+- But I worked at ABC cafe.: ABC카페에서 일했어.
+- I was a cook there.: 나 거기서 요리했어.
+- Wow!: 와우!
+- I went there many times!: 나 많이 갔었어.
+- I love the coffee and sandwiches there.: 나 거기 커피랑 샌드위치 좋아해.
+- Hahaha.: 하하하.
+- By the way come to my party tomorrow?:그런데 내일 나의 파티에 올래?
+- I invited the other neighbors and friends.: 나는 다른 이웃들과 친구들을 초대했어. 
+- We will have delicious babeque.: 우리는 맛있는 바베큐도 할거야.
+- Wow, That's great!: 와우, 멋지구나!
+- I will bring some cookies.: 내가 쿠키좀 가지고 갈께.
+- See you tomorrow!: 내일 보자.
