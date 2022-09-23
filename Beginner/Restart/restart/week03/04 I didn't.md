@@ -1,0 +1,66 @@
+## I didn't
+- This time we will learn about I didn't: 이번 시간에는 I didn't에 관하여 배울거야.
+- I worked yesterday.: 나는 어제 일했어.
+- But, if it's not true, I say I didn't work yesterday.: 그러난 만약 이게 사실이 아니라면 나는 어제 일안했어라고 말해야해.
+- Put didn't before the verb.: 동사 앞에 didn't를 두어.
+- You can make negative sentences about the past.: 너는 과거에 관하여 부정적인 문자을 만들수 있어.
+- I didn't exercise.: 나는 운동을 하지 않았어.
+- I didn't eat dinner.: 나는 저녁을 먹지 않았어.
+- I didn't watch TV.: 나는 티비를 보지 않았어.
+- It's easy, right?: 쉽지, 그렇지?
+- I'm in a reataraunt. I ordered a chicken sandwich,: 나는 레스토랑에 있어. 나는 치킨 샌드위치를 주문했어.
+- But a chicken salad is served. Oh, I don't like salad.: 그러나 치킨 샐러드가 나왔어. 오, 나는 샐러드를 좋아하지 않아.
+- In this case, I can say, I didn't order this.: 이러한 경우에 나는 말하길, 나는 이것을 주문하지 않았어.
+- Yesturday was Sunday. The weather was bad.: 어제는 일요일 이었어. 날씨는 나뻤어.
+- It rained a lot and was so windy.: 비도 많이 오고 바람도 불었어.
+- I stayed at home all day.: 나는 하루종일 집에 머물렀어.
+- I watched TV and cooked for myself.: 나는 티비를 보았고 혼자 요리했어.
+- In this case,: 이러한 경우에
+- because of the bad weather, I can say, I didn't go outside.: 나쁜 날씨때문에, 내가 말하길 나는 밖에 나가질 않았어.
+- This morning you got up late.: 오늘 아침에 넌 늦었어.
+- You set the alarm clock at seven, but you woke up at nine.: 너는 알람시계를 7시에 맞췄지만 9시에 일어났어.
+- Oh my gosh, is the alarm clock broken?: 오 이런 제길, 알람시계 고장 났나?
+- Oh were you in deep sleep?: 오, 너는 깊은 잠에 빠졌던 걸까?
+- Anyway, in this case, you can say, I didn't hear the alarm.: 어쨋든, 이런 상황에서 너는 말하길, 나는 알람을 듣지 못했어.
+- Now, you can say something you didn't do.: 이제 너는 안했다는 걸 말할수 있어.
+- Pratice hard and you can speak English well.: 열심히 연습하고 너는 영어를 잘 말할 수 있을 거야.
+- You can do it!: 너는 할수 있어!
+- I didn't call him.: 난 그에게 전화하지 않았어.
+- He was busy yesturday.: 그는 어제 바뻤어.
+- I'm hungry.: 나 배고파.
+- I didn't have breakfast.: 나는 아침을 먹지 않았어.
+
+## Sentence
+- I didn't order this.: 나는 이 주문을 하지 않았어. 
+- I didn't go outside.: 나는 밖에 나가지 않았어.
+- I didn't hear the alarm.: 나는 알람 소리를 듣지 않았어.
+- I didn't have breakfast.: 나는 아침을 먹지 않았어.
+- I didn't call him.: 나는 그에게 전화하지 않았어.
+- I didn't go there.: 나는 거기에 가지 않았어.
+- I didn't feel well yesturday.: 나는 어제 느낌이 좋지 않았어.
+- I didn't know that.: 나는 그것을 몰라.
+- I didn't drink water.: 나는 물을 마시지 않았어.
+- I didn't bring my pencil.: 나는 연필을 가져가지 않았어.
+- I didn't travel.: 나는 여행을 가지 않았어.
+
+## Pratice
+- Hey, did you go to the party yesturday?: 야, 어제 파티에 갔었니?
+- No.: 아니
+- I didn't go there.: 나는 거기에 가지 않았어.
+- I went to the hospital.: 나 병원에 갔었거든.
+- The hospital?: 병원?
+- Are you Ok?: 너 괜찮아?
+- I'm Ok now.: 나 이제 괜찮아.
+- But I didn't feel well yesturday.: 어제는 컨디션이 안좋았어.
+- I was very sick.: 매우 아펐거든.
+- What was wrong?: 무엇이 문제였어?
+- I had a serious stomachache.: 심각한 위통이었어.
+- And my body was covered with red dots.: 그리고 내 몸이 빨간 점들과 함께 덮였지.
+- Oh! my god.: 오! 이런 신이시여.
+- That's terrible.: 그거 끔찍했네.
+- I know: 나도 알아.
+- I found out that I'm allergic to seafood.: 내가 해산물 알러지가 있다는걸 발견했어.
+- I didn't know that.: 나는 그걸 몰랐었거든.
+- You ate shrimp last night.: 너 지난밤에 새우 먹었잖아.
+- That was the problem.: 그게 문제였었지.
+- You shoud be careful.: 너 조심해야겠어.
