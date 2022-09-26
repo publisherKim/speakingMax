@@ -1,0 +1,66 @@
+## I will
+- Let's learn about the expression "I will".: I will 이라는 표현에 관하여 배워보자.
+- You can talk about your plan with this expression.: 너는 이 표현과 함께 너의 계획에 관하여 말할 수 있어.
+- I will cook.: 나 요리 할거야.
+- I will call you.: 나 너에게 전화할께.
+- I will study English.: 나 영어 공부 할거야.
+- Do you want use this expression?: 너 이 표현 사용하길 원하니?
+- I will help you.: 내가 너를 도울께.
+- There are many posters on the wall.: 벽에 많은 포스터들이 붙어 있어.
+- I am looking at a poster.: 나는 포스터를 보고 있어.
+- My favorite band will hold a concert this month!: 나의 선호하는 밴드가 이번달에 콘서트를 개최해!
+- In this case, I can say, I will go to the concert!.: 이러한 경우에 나는 말하길, 나는 콘서트 보러 갈거야!
+- Tomorrow you're going to the sea with your friend.: 내일 너는 너의 친구와 함께 바다에 보러 가기로 했어.
+- You have to get up early and take the train at seven.: 기차를 7시에 타야하고 너는 일찍 일어나야만 해.
+- Your friend worries about being late.: 너의 친구는 늦을까봐 걱정을 해.
+- In this case you can say, I will call you at six.: 이러한 경우에 너는 말하길, 내가 6시에 전화해 줄께.
+- Your mom's birthday is tomorrow.: 너의 엄마 생신이 내일이야.
+- You want to give her a special gift.: 너는 그녀에게 특별한 선물을 주길 원해.
+- A special birthday cake.: 특별한 생일 케잌이야.
+- Your brother asks you about your plan,: 너의 남자형제가 너의 계획에 관하여 너에게 물어봐,
+- In this case, you can say, I will make a cake.: 이러한 경우에 니가 말하길, 나는 케이크를 만들어 줄거야.
+- now you can tell people about your plan.: 이제 너는 사람들에 너의 계획을 말할 수 있어.
+- This expression will be very helful.: 이 표현은 매우 도움이 될거야.
+- Everyday, I will pratice speaking English.: 매일, 나는 영어를 연습할거야.
+- I hope, It is your plan.: 나는 이것이 너의 계획이 되길 희망해.
+- I need more sleep.: 나는 더 많은 잠이 필요해.
+- I will take a nap.: 나는 낮잠을 잘거야.
+- It is cloudy.: 구름낀 날씨야.
+- I will bring an umbrella.: 나는 우산을 가져 올거야.
+
+## Sentence
+- I will go to the concert.: 나는 콘선트에 갈거야.
+- I will call you.: 너에게 전화할께.
+- I will make a cake.: 나는 케잌을 만들거야.
+- I will go to bed.: 나는 침대에 갈거야.
+- I will travel the world.: 나는 세계를 여행 할거야.
+- I will ask you.: 나는 너에게 질문할께.
+- I will help you.: 내가 당신을 도울께 
+- I will buy you dinner.: 내가 너에게 저녁 살께.
+- I will go home.: 나는 집에 갈거야.
+- I will dance.: 나는 춤을 추거야
+- I will read a book.: 나는 책을 읽을거야.
+
+## Pratice
+- Hey what are yo doing?: 야, 너 뭐하고 있니?
+- You look serious?: 너 심각해 보여.
+- Oh, hey.: 오, 거기
+- I'm reviewing my notes for math class.: 수학 수업을 위해 나의 로트를 다시 보는 중이야.
+- I have a quiz next week.: 다음주에 퀴즈가 있거든.
+- I'm so worried.: 나 매우 걱정됨.
+- Math is so difficult for me.: 수학은 나에게 너무 어려워.
+- Math?: 수학?
+- My major is math,: 내 전공이 수학인데.
+- Ask me anything!: 어떤것이든 물어봐.
+- I can help you.: 내가 너를 도울수 있어.
+- Oh! Right!: 오! 맞아!
+- I forgot about that.: 그것에 관하여 잊고 있었어. 
+- I will ask you.: 너에게 물어볼께.
+- Math is not that hard!: 수학은 그렇게 어렵지 않아!
+- I know the easy way to understand math.: 나는 수학을 이해하는 쉬운 방법을 알아.
+- I will help you.: 내가 너를 도울께.
+- Really? 정말로?
+- If you help me?: 니가 나를 도와준다면
+- I will buy you dinner.:
+- Great! I still have my notes at home.: 좋아! 나는 여전히 나의 노트를 집에 가지고 있어.
+- Let me go home and check.: 집에 가보고 점검해보자.

@@ -1,0 +1,71 @@
+## I'm ~ ing.
+- Today's expression is "I'm ~ ing.": 오늘의 표현은 I'm ~ing 야.
+- For example, I'm dancing, I'm eating, I'm talking.: 예를들어, 나는 춤을 추는 중이야, 나는 먹는 중이야, 나는 말하는 중이야.
+- You can this expression, you can talk about what your are doing right now.: 너는 이표현을 쓸수 있어 니가 지금 무엇을 하고 있는지에 관하여 말할 수 있어.
+- What are you doing now?: 너 지금 뭐해?
+    - What are your father name?: 아버지 이름 뭐니?(굉장히 조선식 사고 방식임.)
+- After this lesson, you can answer the question!: 이 수업 후에는 너는 질문에 답할 수 있어!
+- I am in a movie theater.: 나는 영화관에 있어.
+- After the movie starts, my mom call me.: 영화가 시작한 후에 엄마가 나에게 전화해.
+- I can't answer the phone.: 나는 전화를 받을 수 없어.
+- After a few minutes, she calls me again.: 몇 분이 지난 후에, 그녀는 다시 내게 전화해.
+- I send a text message to her, I'm watching a movie.: 나는 그녀에게 메세지를 보내, 나 영화보는 중이야.
+    - a text message 하나의 단수로 봄.
+- You like British TV dramas.: 너는 영국 TV 드라마들을 좋아해.
+- Your favorite is Shelock.: 너의 선호는 셜록이야.
+    - 애초에 번역이 애매하지 선호하는 작품은(작품이라는 단어가 없어)
+    - 최애는 표준어도 아니고
+- It's very intersting story.: 이것은 매우 재밌는 이야기야.
+- Sometimes you can hear some words, or short sentences in darams.: 때때로 너는 드라마에서 단어나 짧을 문장들을 들을 수 있어.
+- So, when watch the drams, you think,: 그래서 너는 드라마를 볼때, 생각을 해,
+- I'm studying english now.: 나는 영어공부를 하는 중이야.
+- You need head-phones. You go to a shop.: 너는 헤드폰이 필요해. 너는 상점에 가.
+- When you enter the shop, a clerk talks to you, "May I help you?": 너가 가게에 들어설때 점원이 너에게 말하길, 내가 당신을 도울까?
+- In this case, you can say, I'm looking for head-phones.: 이러한 경우에, 니가 말하길: 나는 헤드폰을 찾고 있어.
+    - In this case, you can say: 반복되는 문장 이제 해석 안함.
+- What are you doing now?: 너는 지금 무엇을 하고 있니?
+- I'm teaching English. and you're learning English.: 나는 영어를 가르치고 너는 영어를 배우고
+    - I'm a teacher. and you're student.: 난 선생이고, 넌 학생이야.
+- With "I'm ~ing" you can talk about what you're doing now.: I'm ~ing와 함께 니가 무엇을 하고 있는지에 관하여 너는 말할 수 있어.
+    - Do not With go Genie.
+- Don't forget how to use it.: 잊미마 이것을 어떻게 사용하는지.
+- Come to my house.: 우리 집에 와.
+- I'm cooking pasta now.: 나 파스타 만드는 중이야.
+- I'm driving.: 나 운전중이야.
+- I'll call you later.: 나중에 전화할께.
+
+## Sentence
+- I'm watching a movie.: 나 영화보는 중이야.
+- I'm studying English now.: 나 영어 공부하는 중이야.
+- I'm looking for head-phones.: 나 헤드폰 찾는 중이야.
+- I'm singing a song.: 나 노래 부르는 중이야.
+- I'm reading a book.: 나 책을 읽는 중이야.
+- I'm making a cake.: 나는 케잌을 만드는 중이야.
+- I'm planning a party.: 나는 파티를 계획 중이야. 
+- I'm reading a magazine.: 나는 잡지를 읽는 중이야.
+- I'm eating a salad.: 나는 샐러드를 먹는 중이야.
+- I'm making cookies.: 나는 쿠키들을 만드는 중이야.
+- I'm drinking coffee.: 나는 커피를 마시는 중이야.
+
+## Pratice
+- Hey, Alen: 저기, 알렌
+- What's up?: 무슨일이니?
+- Hey,: 저기
+- I'm making a cake.: 나 케잌 만들고 있어.
+- It's my brother's birthday today.: 내 남자형제 생일이거든, 오늘
+- Wow, That's very nice of you.: 와우, 그것 너에게 매우 좋은 일이구나.
+- I'm planning a surprise party.: 나는 깜짝놀랄 파티를 계획 중이야.
+- His friends will come to the party.: 그의 친구들도 오는 중이야. 
+- That's exciting,: 그것 신나는군,
+- Can I join the party?: 나 파티에 참석할 수 있니?
+- Sure!: 물론이지!
+- By the way, are you busy?: 그런데 말이야, 너 바쁘니?
+- Not really.: 정말 안바뻐.
+- I'm just rading a magazine.: 나 단지 잡지책 읽고 있어.
+- Oh, really?: 오, 정말로?
+- Can you come over soon?: 바로 와줄수 있니?
+- I need more ideas for the party: 나 파티를 위한 아이디어들이 더 필요해.
+- Sure!: 물론이지!
+- It sounds fun.: 재밌겠구만.
+- Okay.: 좋아.
+- Come right now.: 바로 와줘.
