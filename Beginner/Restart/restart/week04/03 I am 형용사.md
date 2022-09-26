@@ -1,0 +1,61 @@
+## I am 형용사
+- We'll learn the expression "I am ~" again.: 우리는 다시 I am ~ 라는 표현을 배울거에요.
+- This time you can tell people about your feelings.: 이번 시간에 너는 사람들에게 너의 감저들에 관하여 말할 수 있어.
+- I'm happy, I'm hungry.: 나 행복해, 나 배고파.
+- I'm agnry, I'm sleepy.: 나 화났어, 나 졸려.
+- Can you tell me about your feelings.: 너의 감정들에 관하여 나에게 말해 줄래?
+- Let's learn this expression and tell people more about you.: 이 표현을 배우고 많이 너에 관하여 사람들에게 말하자.
+- Are you ready?: 준비 됐니?
+- You didn't sleep last night.: 너는 지난밤 잠을 안잤어.
+- You started a new game on the phone.: 너는 폰으로 새로운 게임을 시작했었지.
+- You couldn't stop playing it.: 너는 그거 하는걸 멈출수 없었어.
+- It's moring. You should go to class.: 아침이야. 너는 수업에 가야해.
+- You say to yourself, I'm sleepy.: 너 자신에 대해 니가 말하길, 나는 졸려.
+- You're going to hongkong tomorrow.: 너는 내일 홍콩에 가기로 되어있어.
+- It's your first overseas trip.: 이것은 너의 첫 번째 해외여행이야.
+- Tomorrow morning, you will fly to Hong Kong!: 내일 아침에, 너는 홍콩으로 날아갈거야!
+- You tell you friend about your feeling, I'm excited.: 너는 친구에게 너의 감정을 이야기해, 나 너무 기뻐.
+- In the morning, I rode a bicycle.: 아침에 나는 자전거를 탔었어.
+- In the afternoon, I went swimming.: 오후에 나는 수영을 했어.
+- Now, I'm runnung at the gym.: 이제 나는 체육관에서 달리기를 해.
+- But. I can't do it anymore. Now, I am so hungry.: 그러 나는 이것을 더 이상 할 수 없어. 이제 나는 너무 배고파.
+- With this expression, you can tell us many things about yourself.: 이 표현과 함께, 너는 너 자신에 관하여 많은것을 우리에게 말해줄 수 있어.
+- That's why you have to know this expression!: 그것이 니가 이 표현을 알아야만 하는 이유야!
+- I am going to eat lobsters for dinner!: 나는 저녁에 랍스터를 먹을거야!
+- I'm happy.: 난 행복해.
+- I'm tired.: 나 피곤해.
+- I exercised too much yesturday.: 나는 어제 운동을 너무 많이 했어.
+
+## Sentence
+- I'm sleepy.: 나 졸려.
+- I'm excited.: 나 기뻐.
+- I'm so hungry.: 나 너무 배고파.
+- I'm really tired.: 나 정말 피곤해.
+- I'm hungry.: 나 배고파.
+- I'm sad.: 나 슬퍼.
+- I'm so excited.: 나 기뻐
+- I'm really happy.: 나 정말로 행복해.
+- I'm angry.: 나 화나.
+- I'm dizzy.: 나 어지러워
+- I'm sick.: 나 아퍼.
+
+## Pratice
+- Hey, Jack!: 거기, 잭
+- Hey, Jenny.: 거기, 제니
+- When did you come back from Italy?: 이태리에서 언제 돌아 왔니?
+- I came back yesturday.: 어제 돌아왔지.
+- I'm a little tired.: 나 조금 피곤해.
+- Here, I got a present for you.: 여기, 너를 위한 선물이야.
+- Oh, wow!: 오, 와!
+- Is this mine?: 이거 내거라고?
+- I'm so excited.: 나 너무 기뻐.
+- Open it.: 열어봐.
+- I hope you will like it.: 니가 맘에들어했으면 좋겠다. 
+- Is this a key chain?: 이거 열쇠 고리니?
+- It looks like a building.: 마치 건물처럼 보이는데.
+- Yes!: 맞아!
+- It is a miny Colosseum!: 작은 콜로세움이야.
+- This is awesome.: 이거 멋지구나.
+- I love it!: 맘에들어!
+- Thank you so much.: 너무 고맙다.
+- I'm happy for you!: 나도 너를 위해 기뻐!
