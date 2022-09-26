@@ -1,0 +1,62 @@
+## I was
+- Today's last expression is I was.: 오늘 마지막 표현은 I was야.
+- I was short.: 나는 작았어.
+- I was a student.: 나는 학생이었어.
+- I was happy.: 나는 행복했었어.
+- With this expression, you can talk about yourself in the past.: 이 표현과 함께 너는 너 자신의 과거에 관하여 말할 수 있어.
+- Last night, it rained a lot.: 지난 밤, 비가 많이 왔어.
+- There was thunder and lighting.: 거기에 천둥 번개가 있었지.
+- Moreover, I was alone at home.: 게다가, 나는 집에 혼자 있었어.
+- I want to talk about how I felt last night, so I say, I was scared.: 나는 내가 지난 밤 어떻게 느꼈는지 말하길 원해서 내가 말하길, 나는 두려웠어.
+- You are basketball player in your school.: 너는 너의 학교의 농구선수야.
+- You are tall and can do a dunk shot!: 너는 키가 크고 덩크슛도 할 수 있어.
+- Your friends vist your house and see your photos.: 너의 친구들이 너의 집에 방문 했고 너의 사진들을 보았어.
+- The boy is photo is too short!: 이 소년은 사진에서 매우 작았어!
+- So you say, I was short.: 그래서 니가 말하길, 나는 작았어.
+- You're a college freshman.: 너는 대학교의 신입생이야.
+- The welcome party will be held today.: 신입생 환영회가 오늘 개최 될거야.
+- You have to show your talent there.: 너는 거기서 너의 재능을 보여주어야만 해.
+- You will play the guitar.: 너는 기타를 칠거야.
+- Before you begin, you tell people about yourself.: 시작하기 전에, 너는 사람들에게 너 자신에 관하여 말할거야.
+- I was a guitarlist in the school band.: 나는 학교밴드에서 기타를 맡았어요.
+- Now, you can talk about your story or feelings in the past.: 이제 너는 너의 과거의 이야기 또는 과거의 감정들에 관하여 말할 수 있어.
+- I was fat, I was a guitarlist, I was hungry.: 나는 뚱뚱했어, 나는 기타리스트 였어, 나는 배가 고팠어.
+- With this expression, you will express more about yourself.: 이 표현과 함께, 너는 너 자신에 관하여 좀더 많이 표현할 수 있어.
+- I was a pianist.: 나는 피아니스트 였어.
+- I can play the piano for you.: 나는 너를 위해 피아노를 연주할 수 있어.
+- I was busy yesturday.: 나는 어제 바뻤어.
+- I had to clean my house.: 나는 나의 집을 청소해야만 했어.
+
+## Sentence
+- I was scared.: 나는 두려웠어.
+- I was short.: 나는 키가 작았어.
+- I was a guitarlist.: 나는 기타리스트였어.
+- I was a singer.: 나는 가수 였어.
+- I was sick.: 나는 아펐어.
+- I was a little boy.: 나는 작은 소년이었어.
+- I was angry.: 나는 화가났었어.
+- I was very active.: 나는 매우 활동적이었어.
+- I was a scientist.: 나는 과학자였어.
+- I was smart.: 나는 똑똑했었어.
+- I was sad.: 나는 슬펐어.
+
+## Pratice
+- Do you want to see my childhood pictures?: 내 어린시절 사진 보기 원하니?
+- Yes!: 응!
+- I would love to see them.: 그것을 보고 사랑에 빠졌을거야
+- Here are some photos.: 여기에 약간의 사진들 있어.
+- Oh my god.: 오 이런 맙소사.
+- You were so cute!: 너 너무 예쁘다!
+- I was a little boy.: 나는 작은 소년이었어.
+- Look at this picture.: 이 사진 좀 봐.
+- You look angry.: 너 화가나 보여.
+- I was angry.: 나는 화가났었지.
+- I remeber that time.: 나 그 시절 기억나.
+- I wanted to have a toy train.:  나는 장난감 기차를 가지고 싶었어.
+- But my mom said no.: 그너나 나의 엄마가 안된다고 말했어.
+- When was this photo taken?: 이 사진은 언제 찍었어?
+- I was five years old.: 내가 다섯살 무렵.
+- You are playing with snow.: 눈과 함께 놀고 있네.
+- Wow It's a big snowman!: 와우 정말 큰 눈사람이네
+- I was very active.: 나는 매우 활동적이었어.
+- I liked to play outside.: 나는 밖에서 노는걸 좋아했었어.
