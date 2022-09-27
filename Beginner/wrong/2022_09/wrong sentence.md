@@ -75,3 +75,12 @@
 - 집에가도 될까요?: Can I go home?
 - 쉬는게 어때요?: How about a break?
 - 런던은 어때요?: How aout London?
+
+## 20220927
+- 지도를 구매하셨나요?: Did you buy a map?
+    - Did you have a map?
+- 오늘 저녁 그에게 전화 하실건가요?: Are you going to call him tonight?
+- 거기 어떻게 취직하신 건가요?: How do you get that job?
+- 캠핑가요!: Let's go camping.
+    - Let's camping.
+- 쉬는게 어때요?: How about a break?
