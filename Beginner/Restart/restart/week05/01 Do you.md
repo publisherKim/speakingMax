@@ -1,0 +1,65 @@
+## Do you ~ ?
+- It's a start of a new day!: 새로운 날이 시작되엇어요!
+- Today we'll learn how to make a question.: 오늘 우리는 의문형을 어떻게 만들지 배울거야.
+- Let's start with this expression "Do you ~ ?": Do you ~ ? 라는 표현으로 시작해 보자.
+- Do you like coffee?: 너 커피 좋아하니?
+- Do you have a camera?: 너 카메라 있니?
+- With this expression, you can ask something easily.: 이 표현과 함께 너는 무언갈 쉽게 질문할 수 있어.
+- Are you ready? Let's start.: 준비 됐니? 시작하자.
+- It's my first time in france.: 나의 첫 번째 프랑스야.
+- I finally arrive somewhere Paris.: 나는 마침내 파리의 어딘가에 도착했어.
+- Where am I?, I need a map, but I can't find mine.: 나는 어디에?, 나는 지도가 필요해, 나는 내 것을 찾을 수 없어.
+- Oh, there is a tourist information center.: 오, 저기게 관광객 정보 센터가 있어.
+- I go there and ask, Do you have a map?: 나는 거기에 가서 물어봤어, 지도 가지고 있니?
+- You are in the movie theater.: 너는 영화관에 있어.
+- This is your second date with a girl.: 이것은 너가 소녀와 함께하는 두번째 데이트야.
+- You're buying some drinks and popcorn.: 너는 약간의 마실것들과 팝콘을 사는 중이야.
+- You like popcorn. How about her?: 너는 팝콘을 좋아해. 그녀는 어때?
+- Um, you don't know.: 음, 너는 몰라.
+- Then, you can ask her, Do you like popcorn?: 그러면, 너는 그녀에게 팝콘 좋아하냐고 물을거야?
+- You want to buy new jeans.: 너는 새로운 청바지들을 사길 원해.
+- At the store you find nice ones!: 너는 상점에서 맘에드는 것을 발견했어!
+- You are trying on the pants for size.: 너는 사이즈에 맞는 바지를 입어 보고 있어.
+- These pants are too tight.: 이 바지들은 너무나 꽉 껴.
+- You should try on another size.: 너는 다른 크기를 입어 보아야 해.
+- In this case, you can say, Do you have a larger size?: 더 큰 사이즈 있나요?
+- You should remember Do you and make questions!: 너는 Do you 라는 표현을 기억해야 하고 질문을 해야해!
+- It is very useful expression. You will use it many, many times!: 이것은 매우 유요한 표현이야. 너는 이것을 많이 사용할거야 매번!
+- Do you have a phone?: 너 전화기 있니?
+- Can I have your phone number?: 내가 너의 전화번호 알 수 있을까?
+- Do you like roller coasters?: 너 롤러 코스터 좋아하니?
+- I really like them!: 난 그것들을 정말 좋아해!
+
+## Sentence
+- Do you have a map?: 너 지도 가지고 있니? 
+- Do you like popcorn?: 너 팝콘 좋아하니?
+- Do you like cats?: 너 고양이 좋아하니?
+- Do you like ice cream?: 너 아이스크림 좋아하니? 
+- Do you have a cold?: 너 감기 걸렸니?
+- Do you have a chocolate cake?: 너 초컬릿 케잌 가지고 있니?
+- Do you like hazelnut?: 너 헤이즐넛 좋아하니? 
+- Do you have our membership card?: 너 우리의 멤버쉽 카드 가지고 있니? 
+- Do you have a hat?: 너 모자 가지고 있니?
+- Do you have an umbrella? 너 우산 가지고 있니?
+- Do you like tigers?: 너 호랑이 좋아하니?
+
+## Pratice
+- Hello welcome to our bakery.: 안녕, 우리 빵집에 온걸 환영해. 
+- We have fresh breads and cookies.: 우리는 신선한 빵과 쿠키가 있어.
+- Hello?: 안녕?
+- Do you have a chocolate cake?: 초컬릿 케잌 있니?
+- Of course.: 물론.
+- Our chocolate cake is very popular.: 우리의 초컬릿 케잌은 매우 인기 있어.
+- Do you like hazelnut?: 너 헤지즐넛 좋아하니?
+- We have chocolate hazelnut cake. It's our new item!: 우리는 초컬릿 헤이즐넛 케잌을 가지고 있어. 이것은 우리의 새로운 아이템이야!
+- Chocolate hazelnut cake?: 초컬릿 헤이즐넛 케잌?
+- That sounds really good.: 그것 정말 좋게 들리네.
+- And we are having a discount now.: 그리고 우리가게는 지금 할인 중 이야.
+- It's a good deal!: 그거 좋은 거래네!
+- That's great! I will get that.: 멋져! 그거 선택할게요. 
+- Great! You will love it.: 좋아요! 당신은 이것을 좋아할거에요.
+- Do you have our membership card?: 너는 우리의 멤버쉽 카드 가지고 있니?
+- No, I don't have one.: 아뇨, 없어요.
+- Do you want to make one?: 하나 만드실래요?
+- You can get free cookies and coupons,: 무료 쿠키와 쿠폰을 받을 수 있어요.
+- Sure!: 물론이죠!
