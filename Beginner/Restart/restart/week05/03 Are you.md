@@ -1,0 +1,61 @@
+## Are you 
+- We will learn another question expression.: 우리는 또 다른 의문문 표현을 배울거야.
+- Are you angry? Are you bored? Are you cold?: 너 화났어?, 너 지루해?, 너 춥니?
+- With this expression Are you you can ask someone about their feelings.: 이 Are you라는 표현과 함께 너는 그들의 감정들에 관하여 물어볼 수 있어.
+- Do you want learn more? Then let's start!: 더 많이 배우길 원하니? 그럼 시작해 보자!
+- I have a little sister. She likes the play in the snow.: 나는 어린 여동생이 있어. 그녀는 눈에서 노는걸 좋아해.
+- Last winter. we made a snow man together.: 지난 겨울에, 우리는 눈사람을 함겠 만들었어.
+- Her nose turned red in the cold.: 그녀의 코는 추위에 붉게 물들었어.
+- I worried and ask her. are you cold?: 나는 걱정 되어서 그녀에게 물었어. 너 춥니?
+- You are jogging in the morning.: 너는 아침에 조깅하는 중이야.
+- Then, you see a young man,: 그러다 너는 젊은 남자를 보았어,
+- He is sleeping on the road.: 그는 길거리에서 자는 중이야.
+- You get close to him and wake him up,: 너는 그에게 가까이 가서 그를 깨웠어.
+- When his opens his eyes, you say to him, Are you okay?: 그가 그의 눈을 떴을때 너는 그에게 말해, 너 괜찮니?
+- You playing a board game with your girlfriend.: 넌 너의 여자친구와 함께 보드게임을 하고 있었어.
+- As the game goes on, you become rich.: 게임이 흘러갈수록 너는 부자가 되었어.
+- You take your girl friend's lands.: 너는 너의 여자친구의 땅을 취했어.
+- She doesn't smile anymore.: 더이상 그녀는 웃지 않아.
+- You want to know her feelings, so you say, Are you angry?: 너는 그녀의 감정을 알길 원해서 니가 말하길 너 화났니?
+- This expression is very, very useful, Why?: 이 표현은 매우, 매우 유용해, 왜 그럴까?
+- It is a great way to start a conversation!: 이것은 대화를 시작하는 매우 위대한 방법이야!
+- So use it a lot when you pratice English!: 그래서 이것을 많이 사용해 니가 영어를 연습할때
+- You are smiling a lot.: 너는 많이 웃고 있어.
+- Are you happy?: 너 행복하니?
+- You look sick.: 너 아퍼 보여.
+- Are you okay?: 너 괜찮니?
+
+## Sentence
+- Are you cold?: 너 춥니?
+- Are you okay?: 너 괜찮니?
+- Are you tired?: 너 피곤하니?
+- Are you sick?: 너 아프니?
+- Are you angry?: 너 화났니?
+- Are you free today?: 너 오늘 한가 하니? 
+- Are you sleepy?: 너 졸리니?
+- Are you serious?: 너 심각하니?
+- Are you busy?: 너 바쁘니?
+- Are you sad?: 너 슬프니?
+- Are you hungry?: 너 배고프니?
+
+## Pratice
+- Hey, are you free today?: 너 오늘 한가하니?
+- Yeah, I am free.: 응, 나 한가해.
+- I'm thinking about taking a nap.: 낮잠이나 잘까 생각중이야.
+- I feel a little sleepy.: 나 약간 졸립거든.
+- Are you sleepy?: 너 졸려?
+- Then, I can wake you up!: 그러면 내가 너의 잠을 깨워 줄께!
+- What's up?: 무슨 일이야?
+- Did you hear the news?: 너 소식 들었어?
+- The new Star Wars movie came out today.: 스타워즈 새로운 편 오늘 나왔어.
+- Are you serious?: 너 진심이니?
+- I can't beleive it.: 믿을수 없는데.
+- It's my favorit movie!: 내가 좋아하는 영화라고!
+- I'm a big fan.: 나 정말 팬이야.
+- Me too!.: 나도 역시 그래.
+- I love that movie.: 나 그 영화 사랑해.
+- I watched movie many times!: 나 그영화 많이 시청했었어.
+- Oh my god.: 오 신이시여.
+- I'm so excited.: 나 너무 기대되.
+- I'm excited too.: 나도 기대되.
+- 
