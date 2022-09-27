@@ -1,0 +1,58 @@
+## Did you
+- This time, We'll make a question with the expression "Did you": 이번 시간에 우리는 Did you라는 표현과 함께 의문문을 만들거야.
+- You can use Did you when ask someone about the past.: 너는 과거에 관하여 누군가에게 물어볼때 Did you를 이용할 수 있어.
+- Did you watch the gaem?: 너 게임 봤어?
+- Did you sleep well?: 너 잘 잤어?
+- Did you finish your work?: 너 일 다 했니?
+- Are you ready to learn more about Did you?: Did you에 관하여 더 많이 배울 준비 됐니?
+- Then Let's start.: 그러면 시작하자.
+- I have a friend. He reads many books.: 나는 친구가 있어. 그는 책을 많이 읽어.
+- Before choosing a book, I like to get his opinion.: 책을 고르기전에, 나는 그의 의견을 얻는걸 좋아해.
+- So I ask him, Did you read this book?: 그래서 나는 그에게 묻길, 너 이 책 읽어봤니? 
+- It's rainning outside. But you don't have an umbrella.: 밖에는 비가 오고 있어. 그러나 너는 우산을 가지고 있지 않아.
+- You need to share an umbrella.: 너는 우산의 공유가 필요해.
+- After the class, you ask your friend.: 방과후 너는 너의 친구에게 물어.
+- Did you bring an umbrella?: 너 우산 가지고 왔니?
+- You made cookies for the picnic tomorrow.: 너는 내일 소풍을 위해 쿠키를 만들었어.
+- But you can't find your cookies. Where are they?: 그러나 너는 너의 쿠키를 찾을수 없어. 그것들 어디에 있니?
+- Oh, your little brother wanted to have some.: 오, 너의 남자 동생이 약간을 먹길 원했어.
+- He loves cookies.: 그는 쿠키들을 좋아해.
+- You ask him, Did you eat the cookies?: 너는 그에게 물어, 너 쿠키들 먹었니?
+- You can find out so much information with this expression.: 너는 이 표현과 함께 많은 정보를 발견할 수 있어.
+- So, don't forget!: 그러니 잊지마!
+- Did you hear the news?: 그 소식 들었니?
+- Jack won the lottery!: 잭은 로또에 당첨 되었어!
+- The line is really long.: 줄이 정말 기네요.
+- Did you buy the ticket?: 너 티켓 구매 했었니?
+
+## Sentence
+- Did you read this book?: 너 이 책 읽었니?
+- Did you bring an umbrella?: 너 우산 가지고 있니?
+- Did you eat the cookies?: 너 이 쿠키 먹었니?
+- Did you open the window?: 너 창문 열었니?
+- Did you sleep well?: 너 잘잤니?
+- Did you order yours?: 너 니거 주문 했니?
+- Did you hear the thunder?: 너 번개 소리 들었니?
+- Did you see the lightning?: 너 번개 보았니?
+- Did you drink water?: 너 물 마셨니?
+- Did you buy a map?: 너 지도 구매했니?
+- Did you close the window?: 너 창문 닫았니?
+
+## Pratice
+- I already ordered my coffee.: 나는 벌써 내 커피 주문 했어.
+- Did you order yours?: 니거 주문 했니?
+- Yes, I did. I'm waiting for mine.: 응, 했어. 나 내거 기다리는 중이야.
+- Did you hear the thunder last night?: 지난 밤에 천둥 소리 들었니?
+- I was scared.: 나 무서웠어.
+- Yes, I heared it.: 응 나도 들었어.
+- Did you see the lightning.: 번개는 보았니?
+- It was very bright.: 그것은 매우 밝았어.
+- I know.: 나도 알아.
+- Did you sleep well?: 너 잘 잤니?
+- Yeah, Because I was very tired and sleepy,: 응, 왜냐하면 나는 매우 피곤했고 졸렸어,
+- I fell asleep quickly.: 나는 빨리 깊이 잠들었어.
+- Really? I didn't sleep well.: 정말로? 나는 잠을 잘 못잤어.
+- So, I watched TV all night. It was boring though.: 그래서 밤새 티비를 봤었지. 비록 지루할지라도 말이야.
+- I hope it doesn't rain tonight.: 나는 오늘밤 비가 오지 않길 기대해.
+- I hope so too.:  나도 역시 그러길 희망해.
+- Oh, there's my coffee.: 오, 저기에 내 커피가 있어.
