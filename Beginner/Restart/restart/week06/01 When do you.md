@@ -1,0 +1,60 @@
+## When do you 
+- This time we'll learn the new expression When do you. 이번 시간에는 When do you라는 새로운 표현에 대해 배울거야.
+- When do you eat dinner?: 저녁 언제 먹니?
+- When do you exercise?: 운동 언제 하니?
+- When do you work?: 일은 언제 하니?
+- Yes! You can ask about time with this expression.: 그래! 너는 이 표현과 함께 시간에 관하여 물을 수 있어. 
+- Are you ready to learn more? Let's start!: 더많이 배울 준비 됐니? 시작해보자.
+- A student is always late for my class.: 한 학생이 나의 수업에 항상 늦어.
+- I need to talk with her. I want to know the reason.: 나는 그녀와 이야기를 할 필요가 있어. 나는 이유를 알고 싶어.
+- I think she is gets up late every day.: 내 생각에 그녀는 매일 늦게 일어나.
+- So I ask her, When do you get up?: 나는 그녀에게 묻길, 너 언제 일어나니?
+- A reporter is interviewing an actor.: 한 기자가 한 배우를 인터뷰 해.
+- The actor is famous for his nice body.: 이 배우는 몸 좋은걸로 유명해.
+- He says, I'm very busy, but I exerise every day.: 그가 말하길, 나는 매우 바쁘지만, 나는 운동을 매일해.
+- So the reporter ask him, When do you exercise?: 그래서 리포터가 그에게 묻길, 너는 운동 언제하니?
+- You want to buy a cake at your favorite bakery.: 너는 니가 좋아하는 빵 가게에서 케잌을 사길 원해. 
+- They have wonderful cheese cakes!: 그들은 기적적인 치즈케잌들이 있어.
+- You will get there at 08:30.: 너는 거기에 8:30분에 도착할거야.
+- You need to know the opening hours of the bakery.: 너는 빵집의 영업 시간을 알아야 해.
+- In this case, you can ask them, When do you close?: 이러한 경우에 니가 그들에게 묻길, 언제 문 닫니?
+- In conversation, you can use the expression When do you very often.: 대화하는 중에, 너는 When do you 라는 표현을 매우 자주 사용할거야.
+- Pratice using this expression.: 이표현을 사용하는 연습을 해.
+- It will improve your speaking skills!: 이것이 너의 말하는 기술이 향상 될거야.
+- When do you study Englsh?: 너 영어 공부 언제해?
+- You have to practice every day!: 너는 매일 연습해야만 해. 
+- When do you have free time?: 너 자유시간 언제니?
+- Let's go to the amusement park!: 우리 놀이 동산 가자.
+
+## Sentence
+- When do you cook?: 요리 언제해?
+- When do you exercise?: 언제 운동해?
+- When do you close?: 문 언제 닫아?
+- When do you get up?: 언제 일어나?
+- When do you study?: 공부 언제해?
+- When do you want to start?: 언제 시작하길 원해?
+- When do you open?: 언제 문여니?
+- When do you go to work?: 언제 일하러 가?
+- When do you sleep?: 언제 자니?
+- When do you eat lunch?: 점심 언제 먹니?
+- When do you go home?: 언제 집에 가니?
+
+## Pratice
+- Hi are you new to our gym?: 안녕, 우리 체육관 처음이니? 
+- Yes, I'm new here.: 응 나 여기 처음이야.
+- Are you a personal trainer?: 너 개인트레이너니?
+- Yes, I am.: 응, 나야
+- Are you looking for a personal trainer?: 너 개인트레이너 찾고 있니?
+- Yes, I want to start exercising.: 응, 나 운동 시작하고 싶어.
+- I can help you with that.: 내가 너를 도와 줄께.
+- When do you want to start?: 언제 시작하길 원해?
+- May be next week.: 아마도 다음주.
+- I have to work all day this week.: 이번주에는 일 해야해.
+- I want to exercise early in the morning.: 이른 아침에 운동하고 싶어
+- When do you open?: 언제 문열어?
+- That's fine We open at 6 a.m.: 좋아 우리는 아침 6시에 열어.
+- We can schedule you during the morning.: 우리가 아침동안에 너의 스케쥴을 잡을께.
+- When do you go to work?: 언제 일하러가?
+- I go to work at 9:30.: 나는 9:30에 일하러 가.
+- I think 7 o'clock is best for me.: 나에게는 7시가 최고야.
+- That's great!: 응 좋아!
