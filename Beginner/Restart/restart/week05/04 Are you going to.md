@@ -1,65 +1,58 @@
 ## Are you going to 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- This time we'll learn about Are you going to ~?: 이번 시간에 우리는 Are you going to?에 관하여 배울거야.
+- With this expression, you can ask about someone's future plan.: 이 표현과 함께 너는 누군가의 미래 계획에 관하여 물어볼 수 있어.
+- Are you going to buy eggs?: 너 계란 살거니?
+- Are you going to stay here?: 너 여기게 머무를 거니?
+- Are you going to meet him?: 너 그를 만날 거니?
+- Are you going to listen carefully? Then, let's start!: 너 주의깊게 들을 준비가 됐니? 그러면, 시작하자!
+- I go to shopping mall with my friend.: 나는 친구와 함께 쇼핑몰에 가.
+- I go there just to look around.: 나는 단지 거기에서 구경할거야.
+- I want to know, she needs to buy something.: 나는 알고 싶어 그녀가 필요한 무언갈 사려는지.
+- So I ask her, Are you going to buy something?: 그래서 나는 그녀에게 물어, 너 무언갈 사려고 하니?
+- My friend finally gets a job!: 내 친구는 마침내 취업했어!
+- But there is a problem.: 그러나 거기에 문제가 있어.
+- The company far from his house.: 회사가 그의 집에서 멀어.
+- So I ask him, Are you going to move?: 그래서 나는 그에게 물어, 너 이사 갈거니?
+- It's Friday! You want to make a plan for this weekend.: 금요일이야! 너는 주말에 계획을 만들길 원해.
+- But your friend very busy these days.: 그러나 너의 친구들은 요즘 매우 바뻐. 
+- He worked last weekend.: 그는 지난 주말에도 일했어.
+- You want to know his plan for this weekend.: 너는 이번 주말에 그의 계획을 알고 싶어.
+- So you ask him, Are you going to work tomorrow?: 그래서 너는 그에게 묻길, 너 내일 일하니?
+- Are you going to study English every day?: 너 영어공부 매일 할거니?
+- I hope you say Yes.: 나는 니가 네라고 말하길 기대해.
+- See you tomorrow.: 내일 봐.
+- Are you going to visit London?: 너 런던 갈거니?
+- London is a wonderful city.: 런던은 멋진 도시야.
+- Are you going to eat out?: 너 외식 할거니?
+- I know a good place.: 나 좋은 장소를 알아.
 
 ## Sentence
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- Are you going to buy something?: 너 무언갈 사거니? 
+- Are you going to move?: 너 이사할거니?
+- Are you going to work tomorrow?: 너 내일 일 할거니?
+- Are you going to meet him?: 너 그를 만날거니?
+- Are you going to work today?: 너 오늘 일 할거니?
+- Are you going to take your camera?: 너 너의 사진기 가져 갈거니?
+- Are you going to tour Madrid?: 너 마드리드 여행 갈거니?
+- Are you going to buy me a gift?: 
+- Are you going to buy a book?: 너 책 구매 할거니?
+- Are you going to watch a movie?: 너 영화 볼거니?
+- Are you going to eat the cookies?: 너 쿠기 먹을거니?
 
 ## Pratice
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- Wow that is a cool camera.: 와우 그것참 멋진 사진기네.
+- Did you buy it?: 너 이것 샀니? 
+- Yes, I did.: 응 나 샀어.
+- I'm going to spain next week.: 나 다음주에 스페인가.
+- Are you going to take your camera?: 사진기 가져 갈거니?
+- Of course!: 물론!
+- Spain has great views.: 스페인은 멋진 뷰를 가지고 있어.
+- I need a good camera.: 나는 좋은 사진기 필요해.
+- You are right.: 니가 맞아.
+- Spain is beautiful.: 스페인은 아름다워.
+- Are you going to tour Madrid?: 너 마드리드에 갈거니?
+- Of course!: 물론!
+- I'm going to see the football stadium.: 나는 축구경기장 볼거야.
+- That's awesome!: 그거 멋지네!
+- Are you gonna buy me a gift?: 너 내 선물 사 올거야?
+- May be!: 아마도!
