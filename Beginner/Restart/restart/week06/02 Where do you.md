@@ -62,4 +62,4 @@
 - I live on 3rd Avenue.: 나는 3번가에 살아.
 - OK!: 알았어!
 - Let's go shopping together next time.: 다음번에 쇼핑 같이 가자.
-- I will show you some good shop, 좋은 가게들좀 보여줄께 
+- I will show you some good shop, 좋은 가게들 좀 보여줄께 

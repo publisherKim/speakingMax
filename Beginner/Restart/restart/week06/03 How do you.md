@@ -1,0 +1,64 @@
+## How do you 
+- It's tome to study English!: 영어 공부할 시간이야.
+- We will learn about the expression How do you. 우리는 How do you라는 표현에 관하여 공부 할 거야.
+- How do you study English?: 영어공부 어떻게 해?
+- How do you make this?: 이거 어떻게 만들어?
+- How do you know her?: 그녀를 어떻게 알아?
+- With this expression, you can ask about the way to do something.: 이 표현과 함께 너는 무언가를 할 방법들에 관하여 요청 할 수 있어.
+- Do you want to learn more? Then, let's study together!: 더 배울 준비 됐니? 그렇다면 함께 공부하자!
+- My friend often cooks me pasta. I love his pasta!: 내 친구는 종종 내게 파트타를 요리해줘. 나는 그의 파스타를 좋아해.
+- I want to make the pasta for my girlfriend.: 나는 나의 여자친구를 위해 파스타를 만들고 싶어.
+- She will like it!: 그녀는 이것을 좋아 할거야!
+- First, I want to know the recipe.: 첫쨰로, 나는 레시피를 알고 싶어.
+- So I call my friend and ask, How do you make the pasta?: 그래서 나는 친구를 불러 물어봤어, 파스타 어떻게 만들어?
+- A man is waving at you over there. Who is he?: 한 남자가 저쪽에서 너를 향해 손을 흔들어. 그는 누구지?
+- He comes close to and says, Hi nice to see you again.: 그가 가까이 와서 말해, 안녕 다시 만나서 반가워.
+- But you still don't know him.: 그러나 너는 여전히 그를 몰라.
+- In this case, you can say, How do you know me?: 나를 어떻게 아니?
+- What is it? You can say it in Korean.: 이거 뭐지? 너는 한국말로 말할 수 있어.
+- Can you say it in English? Do you want to know?: 너는 이것을 영어로 말할 수 있니? 너는 알고 싶니?
+- Okay! I will tell you very useful expression.: 좋아! 내가 너에게 매우 유용한 표현을 알려줄께.
+- You can ask this way, How do you say it in English?: 너는 이런식으로 물어 볼 수 있어, 당신은 어떻게 영어로 말해요?
+- Okay. I'll answer your question.: 좋아. 내가 너의 질문에 답할께.
+- It's a wig in English.: 영어로는 wig야.
+- Now, If you don't know something. just ask!: 이제, 니가 무언갈 모른다면. 그냥 물어봐.
+- I hope you can ask many, many question in English.: 나는 니가 영어로 많은 질문을 하길 희망해.
+- Your English is very good.: 너 영어 매우 잘해.
+- How do you study English?: 영어 공부 어떻게 해?
+- You look healthy.: 너 건강해 보여.
+- How do you exercise?: 어떻게 운동하니? 
+
+## Sentence
+- How do you make the pasta?: 파스타 어떻게 만들어?
+- How do you know me?: 나 어떻게 알아?
+- How do you say it in English?: 영어로 어떻게 말해?
+- How do you know her?: 그녀 어떻게 알아?
+- How do you study English?: 영어 공부 어떻게 해?
+- How do you want your steak?: 스테이크 어떻게 구울까?  
+- How do you run so fast?: 어떻게 그렇게 빨리 달려?
+- How do you make pizza?: 피자 어떻게 만들어?
+- How do you bake a cake?: 어떻게 빵 구워?
+- How do you know my name?: 내 이름 어떻게 알아?
+- How do you study spanish?: 스페인어 공부 어떻게 해?
+
+## Pratice
+- Hi, I'm your server Jenny.: 안녕, 나는 너를 담당할 제니야.
+- Would you like anything to drink?: 마실것 좀 드릴까?
+- I want ice water: 나는 차가운 물을 원해.
+- Alright: 알겠어
+- Are you ready to order?: 주문할 준비 됐니? 
+- Yes, I will get a ribeye steak.: 응, 립아이 스테이크 주문할께.
+- Great choice!: 좋은 선택이야!
+- How do want your steak?: 스테이크 어떻게 원하니?
+- Medium, please.:미디엄으로 해줘.
+- You can choose tow side items.: 너는 두개의 사이드 항목을 선택할 수 있어.
+- We have our chef's special.: 우리는 주방장의 특별한게 있어.
+- It's tofu salad.: 이것은 토푸 샐러드야.
+- Hmm, that's interesting: 흠, 그거 흥미롭군.
+- I will try the tofu salad and I  will get fries.: 토푸 샐러드 하나랑 계란 후라이 선택할께.
+- Alright.: 알겠어
+- How do you want your tofu in your salad?: 토푸를 샐러드에 어떻게 넣어 줄까?
+- We can fry it or grill it.: 굽거나 튀기거나.
+- Fried please.: 튀겨줘.
+- 
+- 
