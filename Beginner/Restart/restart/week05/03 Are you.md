@@ -58,4 +58,3 @@
 - Oh my god.: 오 신이시여.
 - I'm so excited.: 나 너무 기대되.
 - I'm excited too.: 나도 기대되.
-- 

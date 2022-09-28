@@ -84,3 +84,7 @@
 - 캠핑가요!: Let's go camping.
     - Let's camping.
 - 쉬는게 어때요?: How about a break?
+
+## 20220928
+- 표좀 보여주시겠어요?: Could you show me your ticket.
+    - can you see me ticket. 
