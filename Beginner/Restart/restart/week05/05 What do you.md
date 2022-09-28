@@ -1,0 +1,62 @@
+## What do you 
+- It's time to learn a new expression.: 이번 시간에는 새로운 표현을 배울거야.
+- The expression is what do you.: Waht do you라는 표현이야.
+- You can use this expression when you want to know more about someone.: 너는 이표현을 니가 누군가를 더 많이 알고 싶을때 사용할 수 있어.
+- What do you do after work?: 너 일 끝나고 뭐해?
+- What do you eat for breakfast?: 아침은 뭘 먹니?
+- Are you ready to learn more? Let's start.: 너 더많이 배울 준비 됐니? 시작하자.
+- Your friend visits your house. She is from Spain.: 너의 친구가 너의 집에 방문 했어. 그녀는 스펜에서 왔어.
+- You want to prepare breakfast for her.: 너는 그녀를 위해 아침을 준비하길 원해.
+- So you need to ask her, What do you eat for breakfast? 그래서는 그녀에게 물어봐야 해, 아침에 뭐 먹니?
+- It's boring these days, You have nothing to do after work.: 요즘은 지루해, 너는 일끝나고 아무것도 할게 없어.
+- You want to do something fun.: 너는 무언가 재밌는 걸 하고 싶어.
+- But you don't know what to do.: 그러나 너는 무얼 할지 몰라.
+- You need to get some ideas from your corwokers.: 너는 동료에게서 약간의 아이디어를 얻고 싶어.
+- So you can ask, What do you do after work?: 그래서 너는 물어봐, 일 끝나고 뭐해요?
+- You are on a blind date.: 너는 소개팅 중이야.
+- It's fun to talk with your date.: 너는 데이트하고 이야기하는게 재밌어.
+- You want to see her again.: 너는 그녀를 다시 보길 원해.
+- First of all, you need to know about her usual plans on the weekend.: 첫째로, 너는 그녀가 보통 주말에 어떤 계획을 가지는지 알아야해.
+- So, you ask, What do you do on the weekend?: 그래서, 너는 물어봐, 주말에 뭐해요?
+- Today you learned a very useful expression.: 오늘 너는 매우 유용한 표현을 배웠어.
+- Do you pratice every day?: 너 매일 연습하니?
+- Then, your speaking skill is getting better every day!: 그러면, 너의 말하는 기술은 매일 점점 늘어날거야!
+- I like comedies.: 나는 코미디를 좋아해.
+- What do you watch on TV?: 너는 어떤 TV 보니?
+- What do you do on the weekend?: 너는 주말에 뭐해?
+- The weather is nice these days.: 요즘 날씨가 너무 좋아.
+
+## Sentence
+- What do you eat for breakfast?: 너 아침에 뭐 먹니?
+- What do you want for your birthday?: 너는 너의 생일에 무엇을 원하니?
+- What do you do on the weekend?: 너는 주말에 뭐해?
+- What do you do after work?: 너는 일끝나고 뭐해?
+- What do you eat for lunch?: 점심에 뭐 먹어?
+- What do you do for vacation?: 방학때 뭐하니?
+- What do you have in your hand?: 너 손에 든거 뭐니?
+- What do you like?: 너 좋아하는거 뭐니?
+- What do you do after school?: 방과후에 뭐해?
+- What do you eat for dinner?: 저녁으로 뭐 먹니?
+- What do you have in your pocaket?: 주머니에 든거 뭐니?
+
+## Pratice
+- What do you do for vacation?: 너 방학에 뭐해?
+- I usually travel to other countries.: 나는 보통 다른 나라로 여행 가.
+- I love treveling.: 나 여행 좋아해.
+- I went to Taiwan last time.: 지난번에는 타이완 갔었어.
+- Treveling is good. 여행은 좋아.
+- What do have in your hand?: 손에 있는거 뭐야?
+- Oh, it is my treveling diary.: 오, 이것은 나의 여행 다이어리야.
+- This is a picture of Taiwan.: 이것은 대만 사진이야
+- It looks really nice.: 이것은 정말로 좋게 보여.
+- How was Taiwan?: 대만은 어땠어?
+- It was too hot.: 너무 더웠어.
+- I couldn't walk in the sun.: 태양에서는 걸을수 없었어.
+- I had to block the sun with an umbrella.: 나는 해를 우산으로 막고 다녀야 했어.
+- Wow. 와우.
+- I loved there mango ice cream and mango shake.: 나는 그들의 망고 아이스크림과 망고 쉐이크를 좋아했어.
+- That sounds good!: 그거 정말 멋지게 들리는 구나!
+- What do yo prefer?: 둘중에 뭐를 더 선호해?
+- Mango ice cream or shake?: 망고 아이스크림 또는 쉐이크?
+- I like mango ice cream more.: 나는 망고 아이스크림이 더 좋아.
+- It was the best mango ice cream.: 이것은 최고의 망고 아이스크림이었어.
