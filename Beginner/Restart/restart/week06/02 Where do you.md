@@ -1,0 +1,65 @@
+## Where do you 
+- Let's pratice a new expression together!: 새로운 표현을 함께 연습하자!
+- We'll learn Where do you.: 우리는 Where do you라느 표현을 배울거야.
+- Where do you live?: 어디 사니?
+- Where do you exercise?: 운동 어디서해?
+- Where do you go on vacation?: 휴가 어디로 가?
+- With this expression, you can ask a question about place.: 이 표현과 함께, 너는 장소에 관하여 물을 수 있어.
+- Now, Let's learn more.: 이제, 더 많이 배우자.
+- I am at the bus stop,: 나는 버스 정류장에 있어.
+- There is a little boy. He is alone.: 거기에 작은 소년이 있어. 그는 혼자야.
+- I ask him, Where is your mom?: 나는 그에게 물어, 너희 엄마 어딨니?
+- I lost my mom, I want my mom, I want to go home.: 나는 엄마를 잃어버렸어, 나는 엄마를 원해, 나는 집에 가고 싶어.
+- He starts cring.: 그는 울기 시작했어.
+- So I ask him, Where do you live?: 그래서 나는 그에게 묻길, 너 어디 사니?
+- You moved to a new place.: 너는 새로운 장소로 이사했었어.
+- You don't know much about that place.: 너는 그 장소에 관하여 많이 몰라.
+- Today, You want to buy some fresh fruits.: 오늘, 너는 약간의 신선한 과일을 사길 원해.
+- So you ask your neighbor, Where do you buy fruits?: 그래서 너는 너의 이웃에게 물어, 당신은 과일을 어디서 사나요?
+- You're in Londo.: 너는 런던에 있어.
+- You want to go shopping in this city.: 너는 이 도시에서 쇼핑을 가고 싶어.
+- But you don't know about this city.: 그러나 너는 이 도시에 대하여 잘 몰라.
+- Just then, You see a fashionable girl!: 때마침, 너는 옷을 잘입는 여성을 봐!
+- To get some shopping tips, you can ask,: 너는 쇼핑 팁을 얻을려고 물어봐.
+- Where do you go shopping?: 쇼핑 어디서 해?
+- You can learn a lot about people and places with this expression.: 너는 이표현과 함께 사람과 장소에 관하여 많은 것을 배울 수 있어.
+- Where do you study English?: 너는 어디서 영어 공부해?
+- I hope you can study English everywhere!: 나는 니가 어느 장소에서나 영어를 공부하길 기대해!
+- Where do you exercise?: 어디서 운동해?
+- Can I join you?: 내가 함께해도 될까?
+- I like your new jacket.: 너의 새로운 자켓 맘에 들어.
+- Where do you buy clothes?: 옷 어디에서 사니?
+
+## Sentence
+- Where do you exercise?: 운동 어디서 해?
+- Where do you buy fruits?: 과일 어디서 사?
+- Where do you go shopping?: 쇼핑 어디서 해?
+- Where do you live?: 어디 사니?
+- Where do you work?: 어디서 일해?
+- Where do you buy clothes?: 옷 어디서 사?
+- Where do you shop?: 쇼핑 어디서 해?
+- Where do you study?: 공부 어디서 해?
+- Where do you play basketball?: 농구 어디서 해?
+- Where do you eat breafast?: 아침 어디서 먹어?
+- Where do you meet your friends?: 친구 어디서 만나?
+
+## Pratice
+- Wow, I love your outfit.: 우와, 네옷 맘에 들어.
+- You are very fashionable.: 너 패션감각 정말 좋아.
+- Where do you buy clothes?: 옷 어디서 사니?
+- Well, I don't have specific places.: 글쎄, 나는 특정하게 장소를 정하진 않아.
+- I buy them everywhere.: 아무데서나 사.
+- I buy some online, too.: 온라인에서도 사.
+- I like your shoes, too.: 니 신발도 맘에 들어.
+- Where do you get your shoes?: 신발 어디서 얻었어?
+- They are unique.: 그들은 희귀해.
+- Unique shoes are hard to find.: 희귀한 신발은 찾기가 어려워.
+- There is a good place downtown.: 다운타운에 좋은 장소가 있어.
+- Where do you shop usually?: 너는 보통 어느 가게에 가?
+- I usually go the mall.: 나는 보통 몰에 가.
+- It's close to my house.: 우리 집에서 가까워.
+- Where do you live?: 어디사니?
+- I live on 3rd Avenue.: 나는 3번가에 살아.
+- OK!: 알았어!
+- Let's go shopping together next time.: 다음번에 쇼핑 같이 가자.
+- I will show you some good shop, 좋은 가게들좀 보여줄께 
