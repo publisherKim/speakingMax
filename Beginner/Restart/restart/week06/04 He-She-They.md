@@ -1,0 +1,66 @@
+## He is, She is, They are.
+- Today, we will learn how to describe other people.: 오늘날, 우리는 다른 사람을 어떻게 묘사하는지 배울거야.
+- When you talk about a man or a woman.: 니가 남자 또는 여자에 관하여 이야기 할때.
+- You can say it with He is or She is.: 너는 이것을 가지고 말할수 있어. He is 또는 She is.
+- He is basketball player. He is tall.: 그는 농구선수야. 그는 키가 커.
+- She is my teacher. She is smart.: 그녀는 나의 선생님이야. 그녀는 똑똑해.
+- When you talk about two or more people.: 니가 둘 또는 그 이상의 사람에 관하여 이야기 할때.
+- You can say with They are.: 너는 They are라는 표현과 함께 말할 수 있어.
+- They are my parents. They are a couple.: 그들은 나의 부모님들이야. 그들은 커플이야.
+- Are you ready learn more? Let's start.: 더 많이 배울 준비 됐니? 시작하자.
+- You had a blind date today.: 너는 오늘 소개팅이 있었어.
+- You enjoyed the time. You laughed a lot.: 너는 즐거은 시간을 보냈어. 너는 많이 웃었어.
+- When you got home. your friend asks you about your date.: 니가 집에 도착했을때, 너의 친구가 너의 소개팅에 관하여 물어봤어.
+- To describe him, you can say,: 그를 묘사하려고, 너는 말할 수 있어.
+- He has a sense of humor. He is funny.: 그는 유머 감각을 가지고 있어. 그는 재밌어.
+- You see a woman on the street. You saw her before.: 너는 길거리에서 여자를 봤어. 너는 그녀를 본적이 있어.
+- You saw her in the fashion magazine.: 너는 그녀를 패션 매거진에서 봤어.
+- Your friend doesn't see her.: 너의 친구는 그녀를 본적이 없어.
+- So, you say to your friend, Look at the woman!: 그래서 너는 너의 친구에게 말해, 저 여자좀 봐!
+- She is a model. She is a beautiful!: 그녀는 모델이야. 그녀는 아름다워!
+- Let's suppose that I'm a famous singer!: 내가 유명한 가수라고 가정해보자!
+- I have many fans.: 나는 많은 패들이 있어,
+- Today, I have a concert.: 오늘날, 나는 콘서트를 가져.
+- When I arrive at the place, I see many people.: 내가 이 장송에 도착했을때, 나는 많은 사람들을 봐.
+- Wow!, I say to my manager,: 와우!, 나는 나의 매니저에게 말해.
+- Look at the people! Thay are my fans!: 사람들 좀 봐, 그들은 나의 팬들이야!
+- Now, you can tell other people about your family, your friends, or your favorite star.: 이제 너는 다른 사람들에게 너의 가족 친구 또는 너의 좋아하는 스타에 관하여 말할 수 있어.
+- Pratice hard! Your English getting better every day!: 열심히 연습해! 너의 영어는 매일 점차 늘어날 거야!
+- He drove me home.: 그는 나를 집에 운저해서 데려다 줬어.
+- He is very kind.: 그는 매우 친절해.
+- She is smart.: 그녀는 똑똑해.
+- She learned everything fast.: 그녀는 뭐든지 빨리 배웠어.
+
+## Sentence
+- He is funny.: 그는 재밌어요.
+- She is beautiful.: 그녀는 아름다워요.
+- They are my fans.: 그들의 나의 팬들이에요.
+- They are my friends.: 그들읜 나의 친구들이에요. 
+- She is pretty.: 그녀는 예뻐요.
+- He is a good player: 그는 좋은 선수야.
+- She is a famous actress.: 그녀는 유명한 여배우야.
+- They are students.: 그들은 학생들이야.
+- He is handsome.: 그는 잘생겼어요.
+- They are happy.: 그들은 행복해요.
+- She is singer.: 그녀는 가수에요.
+
+## Pratice
+- Hey, Did you watch the game yesterday?: 야, 어제 경기 봤니?
+- It was exciting.: 흥미진진 했어.
+- Of course.: 물론이지.
+- My favorite team played very well.: 나의 선호하는 팀이 매우 잘했어.
+- The new coach did a good job.: 새로운 코치가 정말 잘했어.
+- Yes, The coach changed your team.: 응, 그 코치가 너의 팀을 변화시켰어.
+- The won all of their games so far.: 지금 까지 한 모든 경기를 이겼잖아.
+- Who is your favorite player?: 니가 가장 좋아하는 선수는 누구야?
+- My favorite is Brian.: 나의 최애는 브라이언이야.
+- He is the mid-fildeer.: 그는 미드필더야.
+- He is good player.: 그는 좋은 선수야.
+- He knows how to play soccer.: 그는 축구를 어떻게 해야 하는지 알아.
+- I agree with you.: 나도 동의해.
+- Do you know about his wife by the way?: 그런데 너 그녀의 아내에 관하여 알아?
+- Of course.: 물론이지.
+- She is famous actress.: 그녀는 유명한 여배우야.
+- What a lucky man!: 참 행운아야!
+- She is gorgeous.: 그녀는 우아해.
+- They are a well-matched couple.: 그들은 잘 어울리는 커플이야.

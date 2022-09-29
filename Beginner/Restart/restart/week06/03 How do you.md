@@ -60,5 +60,3 @@
 - How do you want your tofu in your salad?: 토푸를 샐러드에 어떻게 넣어 줄까?
 - We can fry it or grill it.: 굽거나 튀기거나.
 - Fried please.: 튀겨줘.
-- 
-- 
