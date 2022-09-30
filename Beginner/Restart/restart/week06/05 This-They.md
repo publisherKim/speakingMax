@@ -1,0 +1,63 @@
+## This- They
+- Now, we will study the expressions This is and That is.: 이제, 우리는 This is 와 That is에 관하여 배울거야.
+- I can poin and say, This is my pen. This is may desk. That is your camera.: 내가 포인트를 말할 수 있어. 이것은 내 펜이야. 이것은 내 책상이야. 저것은 너의 카메라야.
+- When something is near you, use this.: 무엇인가 너의 가까이에 있다면, 너는 this를 사용해.
+- Whe something is far from you, use that.: 무엇인가 너에게 멀리 있다면, 너는 that을 사용해.
+- Now, let's study how to use, this is and that is.: 이제 this is 와 that is를 어떻게 사용하는지 배우자.
+- I'm flying to L.A I check in early to have a window Seat.: 나는 LA로 날라가는 중에 창가 자리에 앉으려고 일찍 체크인(들어가다.) 했어.
+    - 체크인(입장할때 확인) 우리말로 딱히 없는 듯... 굳이 하자면 표검사.
+    - 뒷문장 보면 여기서 체크인은 예약을 빨리 했어. 가 더 부드러울듯
+- I get on the plane. But there is a man in my seat.: 비행기에 탔을때 내 자리에 남자가 있었어.
+- I check my ticket again. He is in my seat.: 나는 내 티켓을 다시 확인해 봤어. 그는 내 자리에 앉아 있어.
+- In this case, I can say, This is my seat.: 여기 내 자리야.
+- You're dog runs away! You're running after him.: 너의 강아지는 달려 나갔어! 너는 그의 뒤를 쫓아가.
+- But, he is so fast. You can't catch him.: 그러나 그는 매우 빨라. 너는 그를 잡을 수 없어.
+    - 강아지를 he로 받아 버리니까. 너는 수컷을 쫓아가. 이런거 어색하게 느끼지 않나. 아무리 문맥상 이해 할 수 있는 문장이지만... 이게 당연한가 he로 받아 버리는게.
+- You want somebody to catch your dog.: 너는 누군가 너의 개를 잡아주길 바래.
+- So you shout, Catch the dog! That is my dog!: 그래서 너는 외쳐, 개좀 잡아! 저것은 나의 개야!
+- You're a photographer.: 너는 사진작가야.
+- You have a photo studio.: 너는 사진 스튜디오를 가지고 있어.
+- Your friends visit your studio.: 너의 친구들은 너의 스튜디오를 방문했어.
+- There is a large photo on the wall.: 벽에는 큰 사진이 있어.
+- You point to it and say, This is my work.: 너는 가르키며 말해, 이것은 내 작품이야.
+- You just learned a very useful expression.: 너는 바로 매우 유용한 표현을 배웠어.
+- You will use it every day!: 너는 매일 이것을 사용할거야!
+- Pratice hard and you will be a good English speaker!: 열심히 연습하고 너는 좋은 영어 말하는 사람이 될거야!
+- That is her car!: 저것은 그녀의 차야!
+- The car is very expensive.: 이 차는 매우 비싸.
+- This is my phone number.: 이것은 나의 전화번호야.
+- Call me when you need help.: 너가 도움 필요할때 전화해.
+
+## Sentence
+- This is my seat.: 이건 내 의자야.
+- That is my dog!: 저건 내 개야.
+- This is my work.: 이건 내 일이야.
+- This is my pen.: 이건 내 펜이야
+- That is his car.: 저건 그의 차야.
+- That is a camera bag.: 저건 카메라 가방이야.
+- This is a coin pocket.: 이건 코인 주머니야.
+- This is a telephone.: 이건 전화기야.
+- This is my ring.: 이건 나의 반지야.
+- That is my book.: 저건 나의 책이야.
+- That is a pencil case.: 저건 필통이야.
+
+## Pratice
+- Welcome to our vintage shop.: 우리의 빈티지 상점에 온걸 환영해.
+- We have many vintage items.: 우리는 많은 빈티지 물건들을 가지고 있어.
+- Are you looking for something?: 너 무언가 찾고 있니?
+- Not really. I want to look around first.: 아니, 일단 좀 둘러보고 싶어.
+- Oh, What's that?: 오, 저거 뭐야?
+- That is a camera bag.: 저것은 카메라 가방이야.
+- It's a very popular item.: 이것은 매우 인기있는 물건이야.
+- Here you are. Take a look!: 여기 있어. 구경해!
+- I like this bag a lot. There are many pocket.: 나는 이 가방이 매우 좋아. 거기에 많은 주머니가 있어.
+- What is this pocket for? 이 주머니는 뭐하는 거니?
+- This is a coin pocket.: 이건 동전 주머니야?
+- You can save coins here.: 여기에 동전을 저장할 수 있어.
+- Oh, I see. What's this one?: 오, 알겠어. 이건 뭐야?
+- It looks very old.: 이건 매우 오래되 보여.
+- This is a telephone.: 이건 전화기야.
+- It's a very old telephone.: 이것은 매우 오래된 전화기야.
+- It doesn't work, but it people use it as a decoration.: 이것은 작동하지 않지만 사람들은 장식으로 사용해.
+- It's a very vintage item!: 이건 매우 빈티지한 물건이야.
+- Wow, You have so many interesting items here.: 와우, 너는 여기에 매우 많은 재밌는 물건들을 가지고 있구나.
