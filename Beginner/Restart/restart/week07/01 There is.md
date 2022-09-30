@@ -1,0 +1,63 @@
+## There is
+- Let's study the expressions "There is" and  "is there~?": "There is" 와  "is there~?"라는 표현들을 공부해 보자.
+- Let's say, something or someone is in a certain place.: 말해보자, 무언가 또는 누군가 특정한 장소에 있어.
+- You can talk about it with "there is".: 너는 there is와 함게 이것에 관하여 말할 수 있어.
+- There is a window in the room.: 방안에 창문이 있어.
+- And you can ask about it with the expression "is there~?": 그리고 너는 is there라는 표현과 함께 이것에 관하여 물어볼 수 있어.
+- Is there a window in the room?: 방안에 창문 있니?
+- Are you ready to learn more? Then, let's start!: 더 많이 배울 준비 됐니? 그러면, 시작해 보자!
+- It's a sunny day.: 화창한 날이야.
+- I'm trevelling to a new place with my friend. we walked a lot.: 나는 친구와 함께 새로운 장소에 여행중이야. 우리는 많이 걸었어.
+- We are very thirsty. We want an iced coffee.: 우리는 매우 목이 말라. 우리는 아이스 커피를 원해.
+- Then, I found a cafe!: 그러자, 나는 카페를 발견했어!
+- In this case, I can say, Look! There is a cafe!: 저기봐! 카페가 있어!
+- You visit a zoo with your little brother.: 너는 너의 남자동생과 함께 동물원에 방문했어.
+- He really wants to see a tiger.: 그는 정말로 호랑이 보기를 원했어.
+- So, you ask the zookeeper, is there a tiger here?: 그래서 너는 동물보육사에게 물었어, 여기에 호랑이 있나요?
+- You are having lunch at a restaraunt.: 너 점식식사를 레스토랑에서 하는 중이야.
+- You like the potato soup here.: 너는 여기의 감자 스프를 좋아해.
+- When eating, you find something in your potato soup.: 니가 감자 수프를 먹던 중에 너는 무언갈 발견 했어.
+- It's a hair!: 이것은 머리카락이야.
+- In this case, you have to say, There is a hair in my soup.: 내 스프에 머리카락이 있어.
+- Do you want to speak English well?: 너 영어 잘하고 싶니?
+- There is a way! There is a good way!: 거기에 방법이 있어! 거기에 좋은 방법이 있어!
+- Let's go shopping!: 쇼핑가자!
+- There is a mall!: 저기에 몰이 있어.
+- You are late again!: 다시 늦었네!
+- Is there a good reason?: 거기에 좋은 이유가 있니?
+
+## Sentence
+- There is a cafe!: 카페가 있어요!
+- Is there a tiger here?: 여기에 호랑이 있니?
+- There is a hair in my soup.: 수프에 머리카락이 있어.
+- There is a book store.: 거기에 서점에 있어.
+- Is there a museum?: 거기 박물관이니?
+- There is good news.: 좋은 뉴스가 있어.
+- Is there bad news?: 나쁜 소식이 있니?
+- There is bad news.: 나쁜 뉴스가 있어.
+- There ia a theater.: 영화관이 있어.
+- There is a lion.: 사자가 있어.
+- Is there a hospital?: 병원이 거기 있니?
+
+## Pratice
+- There is good news.: 좋은 소식이 있어.
+- And there is bad news.: 그리고 나쁜 소식도 있어.
+- Which one do you want hear first?: 뭐 부터 듣고 싶니?
+- Is there bad news, too?: 나쁜 소식도 있어?
+- I don't want to hear that.: 그건 듣고 싶지 않네.
+- What's the good news?: 좋은 소식은 뭐야?
+- Don't be surprised.: 놀라지마
+- I have a girlfriend now!: 나 여자친구 생겼어!
+- What?: 뭐라고?
+- Congratulations!: 축하해! 
+- You are finally dating someone!: 마친내 누군갈 만나는 구나! 
+- I'm so happy for you.: 매우 기쁘구나.
+- Thankyou, man.: 고마워.
+- But,: 그런데,
+- there is bad news.: 나쁜 소식이 있어. 
+- what is it?: 그거 뭔데?
+- Don't be too angry.: 너무 화내지마. 
+- My girlfriend is...: 내 여찬친구는 ...
+- What? Who is it?: 뭐라고 ? 누군데?
+- I'm dating Jane, your young sister.: 너의 여동생 제인리랑 만고 있어. 
+- What?: 뭐라고?
