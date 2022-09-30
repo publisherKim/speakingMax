@@ -1,0 +1,67 @@
+## Where is 
+- This time we'll learn the expression Where is.: 이번 시간에는 우리는 Where is라는 표현을 배울거야.
+- Where is your office?: 너의 사무실 어디니?
+- Where is the exist?: 출구 어디니?
+- Where is the restroom?: 화장실 어디니?
+- With this expression you can ask about the location of soemthing.: 이 표현과 함께 너는 어떤 것의 위치에 관하여 물어볼 수 있어.
+- Let's learn more.: 더 배워 보자.
+- It's raining outside. I have to go out right now.: 밖에 비가 오고 있어. 나는 지금 당장 밖에 나가야 해.
+- But I can't find the umbrella.: 그런데 나는 우산을 찾을 수 없어.
+- In this case I have to ask my mom.: 이런 경우에 나는 엄마에게 물어봐야만 해.
+- Where is the umbrella?: 우산 어디에 있어?
+- My friend jack, often forgets things,: 내 친구 잭은 종종 어떤것을 잊어버리곤해,
+- One day, he visit my apartment.: 어느날, 그는 나의 아파트를 방문했어.
+- He parked in the parking lot.: 그는 주차장에 주차했어.
+- After a few hours, he couldn't remember the location of his car.: 몇 시간후, 그는 그의 차의 위치가 기억나지 않아.
+- In this case, he can say, where is my car?: 내 차 어딨어?
+- You're in the cafe. Your are drinking coffee.: 너는 카페에 있어. 너는 커피를 마시는 중이야.
+- Oops! You dropped the coffee!: 이런! 너는 커피를 떨궜어!
+- You need to clean your shirt.: 너는 너의 셔츠를 닦을 필요가 있어.
+- So, you ask the clerk, where is the restroom?: 그래서, 너는 점원에게 물어, 화장실 어디에요?
+- Now you can ask question about place.: 이제 너는 장소에 관하여 질문 할수 있어.
+- When you want to find something or some palce.: 니가 무언가 또는 어떤 장소를 찾길 원할때
+- You can use this expression.: 이 표현을 이용할 수 있어.
+- Especially, when you are on a trip, this expression will be very useful.: 특히 니가 여행 중이라면 이 표현은 매우 유용할거야.
+- Don't forget it!: 잊지마!
+- Where is my phone?: 내 전하기 어딨니?
+- I can't find in my bag.: 나는 가방에서 찾을 수 없어.
+- Excuse me.: 실례할께요.
+- Where is the subway station?: 지하철역 어디에 있을까요?
+
+## Sentence
+- Where is the umbrella?: 우산 어디에?
+- Where is my car?: 내 차 어디에?
+- Where is your mother?: 너희 엄마 어디에?
+- Where is your house?: 너네 집 어디에?
+- Where is the restroom?: 화장실 어디에?
+- Where is the post office?: 우체국 어디에?
+- Where is your homework?: 너의 숙제 어디에?
+- Where is your hometown?: 너의 고향 어디에?
+- Where is your friend?: 너의 친구 어디에?
+- Where is my jacket?: 나의 자켓 어디에? 
+- Where is the bus stop?: 버스 정류장 어디에 있니?
+
+## Pratice
+- Excuse me.: 실례해.
+- Where is the Pine Market?: 파인 마켓 어디니? 
+- Do you looking for the Pine Market?: 파인 마켓 찾고 있니?
+- I'm gogin there too.: 나도 거기에 가.
+- I can guide you there.: 내가 거기까지 너를 안내해 줄께.
+- Really? Thank you so much!: 정말로? 너무 고마워!
+- No, problem.: 응 괜찮아.
+- Do you know the paul bakery?: 폴제과점 아니?
+- I heared it is close to here.: 여기 근처라고 들었어.
+- Of course!: 물론!
+- It is very popular in this area.: 이 지역에서 매우 인기 있어. 
+- Where is the paul bakery?: 폴 제과점 어디니?
+- It's also around the Pine Market area.: 이것 또한 파인마켓 지역 주변에 있어.
+- We need go to straight this way.: 우리는 이방향으로 직진 하면 됨.
+- Are you a tourist?: 너 관광객이니?
+- No, I'm not.: 난 아냐.
+- But I moved here last week.: 그러나 지난주에 이사왔어. 
+- I see.: 알겠어.
+- Where is your hometown?: 고향은 어디야? 
+- I lived in Seattle for my entire life.: 나는 내 전부를 시애틀에서 살았어.
+- I'm from Chicago, the windy city.: 나는 시카고에서 왔어, 바람의 도시야.
+- Chicago is very different from Seattle.: 시카고는 시애틀과 매우 달라.
+- I moved here beacuse of my work.: 나의 일떄문에 여기로 이사왔어.

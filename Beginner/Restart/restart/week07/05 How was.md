@@ -1,0 +1,56 @@
+## How was 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+
+## Sentence
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+- How was 
+
+## Pratice
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
