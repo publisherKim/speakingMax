@@ -1,56 +1,66 @@
 ## How was 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- Now, let's talk about to know new expression How was.: 이제 우리는 How was라는 새로운 표현에 관하여 말해 보자.
+- When you want to know about something that happened in the past.: 과거에 일어난 일에 대해 알고 싶을때.
+-  was it good or not? ~you can use this expression.: 좋았었는지 나뻤었는지? 너는 이 표현을 사용해 할수 있어.
+- How was your flight?: 너의 비행 어떘어?
+- How was your hotel?: 호텔 어땠어?
+- How was your dinner?: 저녁 어땠어?
+- Do you want to learn more? Then, let's start!: 더 많이 배우길 원해? 그러면, 시작하자!
+- It's finally the weekend!: 마침내 주말이야!
+- I want to see the new, popular movie.: 나는 새로나온 인기있는 영화를 보고 싶어.
+- My cowoker saw it last weekend.: 나의 직장동료가 지난 주말에 보았어.
+- I want to hear his opinion about the movie.: 나는 그에게서 영화에 관하여 의견을 듣고 싶어.
+- How was the movie?: 영화 어땠니?
+- Your friend invited you to her birthday party.: 너의 친구가 너를 그녀의 생일 파티에 초대했어.
+- However, you didn't go.: 그러나 너는 갈수가 없었어.
+- You want to know if the party was fun.: 너는 파티가 재밌었는지 궁금해.
+- In this case you can say, how was the party?: 파티 어땠어?
+- You're meeting a friend. She came back from a trip to London.: 너는 너의 친구를 만나는 중이야. 그녀는 영국 여행에서 돌아왔어.
+- She stayed there for a month!: 그녀는 거기에 한 달이나 머물렀어!
+- You want to hear about her trip.: 너는 그녀의 여행에 관하여 듣고 싶어.
+- So, you say, How was your trip?: 그래서, 너는 말하길, 여행 어땠니?
+- I'll give you a tip.: 좋은 팁을 줄께.
+- This expression is a great way to start a conversation!: 이 표현은 대화를 시작할 매우 좋은 방법이야!
+- Pratice using how was.: how was를 사용하는 연습을 해.
+- Then, you can start a coversation more esily!: 그러면 너는 더 쉽게 대화를 시작할 수 있어!
+- How was your trip to China?: 너의 중국 여행 어땠어?
+- How was food there?: 거기 음식 어때?
+- How was your weekend?: 너의 주말 어때?
+- Did you get some rest?: 조금 쉬었니?
 
 ## Sentence
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
-- How was 
+- How was the movie?: 영화 어땠니?
+- How was your party?: 파티 어땠니?
+- How was your trip?: 여행 어땠니?
+- How was your vacation?: 휴가 어땠어?
+- How was the concert?: 콘서트 어땠어?
+- How was your day?: 오늘 하루 어땠어?  
+- How was your trip to Europe?: 유럽 여행 어땠어?
+- How was the food?: 음식 어땠어?
+- How was class?: 수업 어땠어?
+- How was the tour?: 여행 어땠어?
+- How was the zoo?: 동물원 어땠어?
 
 ## Pratice
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- Hey, cathy.: 안녕, 케이시.
+- How was your day?: 오늘 어땠어?
+- It was a good.: 좋았어.
+- How about you?: 너는 어때.
+- It was good for me too.: 나도 역시 좋았지.
+- By the way,: 그런데
+- how was your trip to Europe?: 너의 유럽여행 어땠어? 
+- It was awesome.: 멋졌지.
+- I had so much fun.: 너무 즐거웠어.
+- I met so many new friends.: 많은 새로운 친구를 만났죠.
+- Good for you!: 좋은 일이네!
+- Where did you go?: 어디 갔니?
+- I went to London, Paris, and Rome.: 런던 파리 그리고 로마.
+- All of them were great.: 거기 모두 멋졌어.
+- How was the food?: 음식은 어땠어?
+- Did you eat much?: 많이 먹었니?
+- I ate a lot!: 많이 먹었지.
+- I had pizza and pasta in Rome.: 나는 피자와 파스타를 로마에서
+- In London, I had lobster burger and fish and chips.: 런던에서는 랍스타 버거와 피시앤칩스를
+- And I had macarons in Paris.: 그리고 프랑스에서 마카롱을 먹었지.
+- I'm jealous!: 나 부럽다!
+- I should go to Euprope.: 나도 유럽에 가야겠어. 
