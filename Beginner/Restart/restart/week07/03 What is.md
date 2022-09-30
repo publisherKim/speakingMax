@@ -1,0 +1,70 @@
+## What is 
+- Today's first expression is What is.: 오늘의 첫번째 표현은 What is야.
+- When you need more information about someone or something.: 니가 무엇인가 또는 누군가에 관하여 더 많은 정보가 필요하다면,
+- make a question with this expression.: 이 표현과 함께 질문을 만들수 있어.
+- What is it? What is your name?: 그거 뭐야? 너 이름 뭐니?
+- What is your favorite sport?: 니가 가장 좋아하는 운동은 뭐니?
+- Now let's learn more about how to make a question with What is.: 이제 What is와 함께 질문을 어떻게 하는지에 관하여 더 많이 배우자.
+- I have a new friend.: 나는 새로운 친구가 있어.
+- We are having dinner after work. We meet downtown.: 우리는 일 끝난 후에 저녁을 가졌어. 우리는 다운타운에서 만났어.
+- I know some good restaraunts there. I have to choose one.: 나는 거기의 좋은 식당들을 조금 알아. 나는 하나를 골라야만 해.
+- So I ask her, what is your favorite food?: 니가 제일 선호하는 음식이 뭐야?
+- You go to the market in Bangkok.: 너는 방콕에 있는 시장에 가.
+- It's fun to look around there. 그곳 주위를 보는건 재밌어.
+- There are many new things.: 거기에 새로운 것들이 많아.
+- At the fruit shop, you see a new fruit.: 과일가게에서 너는 새로운 과일을 봐.
+- You've never seen it before. It looks funny.: 너는 전에 본적 없었던 것들. 이것은 매우 웃기게 생겼어.
+- You want to know about it, so you ask, What is it?: 너는 이것에 관하여 알고 싶어서, 물어봐, 이거 뭐니?
+- You can meet many people on your journey.: 너는 여행중에 많은 사람들을 만날 수 있어.
+- Sometimes new make new friends.: 때때로 너는 새로운 친구들을 만들었어.
+- You had a good time with them.: 너는 그들과 즐거운 시간을 보냈어.
+- You want to keep in touch with them.: 너는 그들과 연락을 유지하고 싶어.
+- So you ask their e-mail addresses, What is your e-mail address?: 그래서 너는 그들의 이메일 주소를 물었어, 너의 이메일 주소 뭐니?
+- Do you want to know about something?: 너는 무엇인가 알고 싶은것 있니?
+- Then use this expression.: 그러면 이표을 쓰자.
+- You can pratice speaking this expression anytime, anywhere!: 너는 이표현 말하는 연습은 언제든 어디서든 할 수 있어!
+- You can do it!: 너는 할 수 있어!
+- What is your phone number?: 너 전화번호 뭐니?
+- I'll call you later.: 나중에 전화할께.
+- What is your favorite food?: 너 좋아하는 음식 뭐니?
+- I like italian food.: 나 이탈리아 음식 좋아해.
+
+## Sentence
+- What is your favorite food?: 니가 좋아하는 음식 뭐니? 
+- What is it?: 이거 뭐니?
+- What is your e-mail address?: 너의 이메일 주소 뭐니? 
+- What is this box?: 이 박스 뭐니?
+- What is your phone number?: 너의 전화번호 뭐니?
+- What is that green soup?: 저 초록색 스프 뭐니? 
+- What is that cake?: 저 케잌 뭐니?
+- What is his name?: 그의 이름 뭐니?
+- What is your name?: 너의 이름 뭐니?
+- What is your favorite song?: 니가 좋아하는 노래 뭐니?
+- What is that bottle?: 저 병은 뭐니?
+
+## Pratice
+- We are finally here.: 우리는 마침내 여기에 왔어.
+- This is International Food Fair!: 이곳은 국제음식 박람회야.
+- Wow it's great.: 와우, 멋져.
+- I heard this festival is very popular.: 나는 이 축제가 매우 인기 있다고 들었어.
+- I really wanted to come here!: 나는 이곳에 와서 정말로 기뻐.
+- Me too!: 나도 그래!
+- They have various kinds of dishes from all over the world.: 그들은 전세계로부터 매우 다양한 접시를 가지고 있어.
+- Oh!: 오!
+- What is that green soup.: 저 녹색 스프는 뭐니?
+- I think it is green curry.: 내 생각엔 녹새 카레여.
+- It's from Thailand.: 태극음식이야.
+- What is that cake?: 저 케잌은 뭐지?
+- It is huge.: 크다.
+- It is big.: 커.
+- It is banana pudding.: 바나나 푸딩이야. 
+- Yum!: 맛있겠다!
+- Let's have that later.: 나중에 저거 먹자.
+- What is your favorite food here?: 니가 여기서 선호하는 음식은 뭐니?
+- Pho! I love pho! 포! 포를 사랑해!
+- What is Pho? 포가 뭐야?
+- Look here.: 여기 봐.
+- It's Vietnamese noodles,: 베트남 국수야,
+- It is really good.: 이거 정말 좋아.
+- Let's try that first.: 처음으로 먹자.
+- 
