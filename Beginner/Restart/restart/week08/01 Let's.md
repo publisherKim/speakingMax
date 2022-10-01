@@ -1,0 +1,60 @@
+## Let's 
+- We will learn very important expression now. It is let's.: 우리는 매우 중요한 표현을 이제 배울거야. 그것은 let's야.
+- Let's go! Let's work together! Let's eat pizza!: 가자! 함꼐 일하자! 피자 먹자!
+- With this expression, you can suggest something.: 이 표현과 함께, 너는 무언갈 제안할 수 있어.
+- Are you ready? Let's starts today's lesson! 준비 됐니? 오늘의 레슨을 시작하자!
+- I'm going to the museum with my friend.: 나는 친구와 함께 박물관에 갈 예정이야.
+- Last time, we walked there. But it took a long time.: 지난번에 우리는 걸어갔어. 그러나 오래 걸렸어.
+- I want to suggest to another way.: 나는 다른 방법을 제안 했어.
+- So, I say let's take a taxi.: 그래서 나는 말하길, 택시 타고 가자.
+- You're in a meeting now.: 너는 미팅 중이야.
+- It started two hours ago, but needs much more time.: 2시간이 훌쩍 지났어, 그러나 더 많은 시간이 필요해.
+- People in the meeting look tired.: 회의에 있는 사람들은 피곤해 보여.
+- They need to refresh themselves,: 그를은 그들 스스로 재충전이 필요해,
+- So you say, Let's take a break.: 그래서 니가 말하길, 휴식 좀 가지자.
+- You're at a restaraunt for lunch.: 너는 점심을 위해 레스토랑에 있어.
+- The restaraunt is very popular.: 식당은 매우 인기 있어.
+- When you get there. the line is too long.: 니가 식당에 도착했을때, 줄은 매우 길어.
+- They say you should wait an hour.: 그들은 말하길 니가 한시간 정도 기다려야 한대.
+- You're hungry. You can't wait that long.: 너는 배고파. 너는 길게 기다릴 수 없어.
+- So you say, Let's go to another place.: 그래서 니가 말하길, 다른 장소에 가자.
+- Let's is a friendly way to make a suggestion!: let's는 친근한 방법이야 제안을 하기에!
+- People use it very often. You will use it very often, too!: 사람들은 매우 종종 사용해. 너도 역시 매우 종종 사용하게 될거야.
+- Let's pratice English Okay?: 함께 영어 사용하자 알겠니?
+- I know a good restaraunt.: 나는 좋은 식당을 알아.
+- Let's eat out tonight.: 함께 저녁 먹자.
+- It's nice outside.: 바깥 날씨가 나이스해.
+- Let's take a walk.: 산책가자.
+
+## Sentence
+- Let's take a taxi.: 우리 택시타자. 
+- Let's have dinner.: 저녁 먹자.
+- Let's go shopping.: 쇼핑가자.
+- Let's take a break.: 휴식을 취하자.
+- Let's go there.: 거기 가자.
+- Let's have a meeting.: 회의를 가지자.
+- Let's play outside.: 밖에서 놀자.
+- Let's go camping.: 캠핑가자
+- Let's go to the park.: 공원에 가자.
+- Let's dance together.: 함께 춤추자.
+- Let's watch a movie.: 영화보자.
+
+## Pratice
+- It's finally Friday.: 마침내 금요일이야.
+- I'm so excited for the weekend.: 나는 주말이 되어 매우 신나.
+- Me too. What are you doing this weekend?: 나도 역시 그래. 주말에 뭐해?
+- Let's do something together.: 함께 뭐좀 하자.
+- Okay. that sounds good.: 알겠어. 그거 좋지.
+- What do you want to do?: 무얼 하고 싶니?
+- How about watching a movie?: 영화 보는거 어때?
+- A movie is good, but the weather is so nice.: 영화좋지만, 날씨가 너무 좋아.
+- Let's play outside!: 밖으로 나가자!
+- You're right.: 니가 옳아.
+- I have a great idea.: 나는 좋은 생각이 있어.
+- Let's go camping.: 캠핑가자.
+- We can cook sausage and steaks on a grill!: 우리는 소세지와 스테이크를 그릴에 요리할 수 있어!
+- Oh my god!: 오 이런 신이시여!
+- Tha's a perfect idea.: 완벽한 생각이야.
+- Steak is my favorite food.: 내가 가장 좋아하는 음식이 스테잌이야.
+- Let's go our other friends too!: 다른 친구들도 부르자!
+- Great idea! This is going to be fun!: 위대한 생각이야! 재미있을 예정이야!
