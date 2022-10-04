@@ -1,0 +1,56 @@
+## Thank you for 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+
+## Sentence
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+- Thank you for 
+
+## Pratice
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
+- 
