@@ -1,56 +1,63 @@
 ## Thank you for 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- It's time to learn the last expression.: 마지막 표현을 배울 시간이야.
+- This time, we'll talk about "Thank you for.": 이번 시간에, 우리는 Thank you for라는 표현에 관하여 말할거야.
+- When somebody helps you or does a good thing for you,: 어떤 이가 너를 돕거나 너에게 좋을 행동을 했을때,
+- You can express your warm feeling with this expression.: 너는 너의 따뜻한 감정을 이 표현과 함께 표현할 수 있어.
+- Thank you for your cake.: 너의 케잌 줘서 감사해.
+- Thank you for the cookies.: 너의 쿠기들 줘서 고마워.
+- Thank you for the flowers.: 너의 꽃들 줘서 고마워
+- Are you ready to learn more? Let's start!: 더 많이 배울 준비 됐니? 시작해 보자!
+- I'm having a bad day at work. My computer is broken!: 나는 오늘 직장에서 나쁜 날을 보냈어. 내 컴퓨터는 고장 났어!
+- My coworker tells me how to fix it.: 내 동료가 어떻게 수리할지 말했어.
+- In this case, I can say, Thank you for your advice.: 너의 충고 고마워.
+- It's your birthday! You have a party with your friends,: 너의 생일날이야! 친구들과 함께 파티를 가지고 있어,
+- Your friends give your box. "Open it.": 니 친구가 너에게 박스를 주었어. 열어봐.
+- There is a concert ticket in the box.: 거기 상자 안에는 콘서트 티켓이 들었어.
+- It's your favorite singer's concert.: 이것은 니가 가장 좋아하는 가수의 콘서트야.
+- In this case, you can say, Thank you for your present.: 너의 선물 고마워!
+- You're having dinnert at restaraunt with your friend.: 너는 친구와 함께 저녁식사를 식당에서 가지고 있어.
+- After the meal, he says "I got a bonus, I'll treat you.": 식사 후에 그가 말하길, 나 보너스 얻었어, 내가 널 대접할께.
+- In this case, you can say, Thank you for dinner.: 저녁식사 고마워.
+- You will use this expression almost every day!: 너는 이 표현을 거의 매일 사용하게 될거야!
+- I hope you can use this expression many, many times.: 나는 희망해 니가 이 표현을 많이 많이 사용하게 되기를.
+- And I'd like to tell you.: 그리고 나는 너에게 말해줄게 있어.
+- Thank you for studying English with me!: 나와 함께 영어 공부해줘서 감사해!
+- Thank you for your time.: 너의 시간 고마워.
+- Thank you for your kindness.: 너의 친절 고마워.
 
 ## Sentence
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
-- Thank you for 
+- Thank you for your advice.: 너의 충고 고마워.
+- Thank you for the present.: 선물 고마워.
+- Thank you for dinner.: 식사 고마워
+- Thank you for your help.: 너의 도움 고마워. 
+- Thank you for your time.: 시간 내줘서 고마워.
+- Thank you for choosing our hotel.: 우리 호텔 선택해줘서 고마워
+- Thank you for your letter.: 너의편지 고마워.
+- Thank you for for listening.: 들어줘서 고마워.
+- Thank you for for coming.: 와서 고마워.
+- Thank you for for the letter.: 편지 고마워.
+- Thank you for for lunch.: 점심 고마워.
 
 ## Pratice
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- Welcome! How can I help you?: 환영해! 내가 어떻게 너를 도울까?
+- I made a reservation.: 나는 예약을 했어.
+- Tony Anderson.: 토니 앤더슨.
+- Mr, Anderson.: 앤더슨씨.
+- Thank you for choosing our hotel.: 우리 호텔 선택해서 고마워.
+- You are staying for three days.: 너 3일 머무를 예정이네.
+- Is it right?: 이것 맞지?
+- Yes It is.: 응, 이것 맞아.
+- When can I check-in?: 나 언제 체크인 가능?
+- Our check-in time in 3 p.m: 오후 3시에 체크인 시간이지.
+- Our rooms are not ready yet.: 우리의 방들은 아직 준비 되지 않았어.
+- Then, can I leave my bags here?: 그러면, 내 가방을 여기에 놔두고 가도 되니?
+- I will come back after 3.: 나는 3시 이후에 돌아올께.
+- Sure, you can leave your bags here.: 물론, 니 가방 여기 놔두고 갈수 있지.
+- I will give you a call when your room is ready.: 내가 너의 방이 준비되면 너의 전화기로 전화 줄께.
+- That sounds great!: 저 소리들은 위대하군!
+- Thank you for your kindness!: 너의 친절 고마워!
+- There are many things to do here.: 여기에는 할것들이 많이 있어.
+- I recommend that you visit the Modern Art museum.: 나는 추천해 니가 현대 미술 박물관에 방문 하기를.
+- It's free pay for today.
+- I heard it is very beautiful.: 나는 매우 아름다운 것을 들었어.
+- Thank you for your advice!: 충고 고마워!
