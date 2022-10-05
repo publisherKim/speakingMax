@@ -104,3 +104,4 @@
     - I'm so excited!: 매우 신나
 - Me, too!.: 나도 그래
 - All right! Let's go!: 좋았어! 출발하자!
+
