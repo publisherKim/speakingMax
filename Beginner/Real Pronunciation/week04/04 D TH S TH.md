@@ -101,3 +101,4 @@
 - A mouse has a small mouth.: 쥐는 작은 입을 가졌어.
 - I need something long and thin like a straw.: 나는 빨대처럼 길고 얇은 무언가가 필요해.
 
+
