@@ -85,20 +85,20 @@
 - Our funiture is old. We should buy a new sofa.: 우리의 가구는 낡았어. 우리는 새로운 쇼파를 사야만 해.
 
 ## words
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
-- 
+- picture: 그리다.
+- future: 미래
+- culture: 문화
+- funiture: 가구
+- lecture: 강의
+- nature: 자연
+- gesture: 제스처
+- posture: 자세
+- texture: 질감
+- signature: 서명
 
 ## sentences
-- 
-- 
-- 
-- 
+- How do you picture your fucture?: 미래를 어떻게 그리니?
+- I'm studying American culture and its literature.: 나는 미국 문화와 문학을 공부해.
+- They manufacture funiture in that building.: 그들은 저빌딩에 가구를 제조해.
+- There is a lecture on literature on campus.: 캠퍼스에서 문학 강의가 있어요.
 
