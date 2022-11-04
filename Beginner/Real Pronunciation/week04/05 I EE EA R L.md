@@ -102,3 +102,4 @@
 - You can turn rihgt at a green light.: 초록색등에서 우회전을 할수 있어.
 - I rarely leave my home town on the weekend.: 저는 주말엔 거의 고향을 떠나지 않아요.
 
+
