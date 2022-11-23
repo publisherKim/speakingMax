@@ -104,4 +104,3 @@
 - I wish I could skate in the sky.: 나는 하늘에서 스케이트를 타길 바라.
 - I can speak and spell in Spanish.: 나는 스페인어를 말하고 쓸수 있어.
 - I stopped walking and stared at the sky.: 나는 걷는것을 멈추고 하늘을 응시했어. 
-

@@ -1,0 +1,72 @@
+## Lecture1
+- Today we are going to practice the expression, My favorite.: 이번시간에 우리는 내가 가장 좋아하는 것들에 관한 표현을 연습할거야.
+- The woman in this video is eating a hamburger.: 여성이 이 비디오안에서 햄버거를 먹고 있어.
+- She really likes hamburgers.: 그녀는 정말로 햄버거를 좋아해.
+- In this case she can say,: 이런 경우 그녀는 말해.
+- My favorite food is hamburgers.: 내가 가장 좋아하는 음식은 햄버거야.
+- Your favorite thing is something you like the most.: 네가 가장 좋아하는 것은 어떤것이란 니가 가장 좋아하는 어떤것이야.
+- There are four seasons. I like summer the most.: 거기에 사계절이 있어. 나는 여름을 가장 좋아해.
+- So I say. "My favorite season is summer.": 그래서 내가 말하길 내가 가장 좋아하는 계절은 여름이야.
+- I'll give you another example.: 내가 다른 예시를 들어줄께.
+- If you traveled to many places and you liked Italy the most , you can say.: 만약 니가 많은 장소들을 여행했고 니가 이태리를 가장 좋아해면, 너는 말할수 있어.
+- My favorite place is Italy.: 내가 가장 좋아하는 장소는 이탈리아야.
+- Now, let's see how to use my favorite in my story.: 이제 내가 가장좋아하는 나의 이야기를 보여줄께.
+- I have a classmate who is very, very quiet.: 나는 아주 아주 조용학 학급 친구가 있어.
+- He doesn't talk much.: 그는 말을 잘 하지 않아.
+- One day, we were talking about soccer.: 어느날, 우리는 축구에 관하여 이야기를 했어.
+- And all of a sudden, my quiet friend started talking.: 그리고 갑자기 나의 조용한 친구가 이야기 하기 시작했었어.
+- My favorite soccer team is England.: 내가 가장 좋아하는 팀은 영국이야.
+- They have one of the most popular leagues in the world.: 그들은 세계에서 가장 인기있는 리그들중 하나를 가지고 있어.
+- They are very famous for their perfect set plays with great teamwork.: 그들의 세트플레이는 위대한 팀웍과 함께 완벽하고 유명해.
+- Every one was looking at him. It was our first time hearing his voice.: 모두 그를 쳐다봤어. 이것이 우리가 그의 목소리를 처음들은 시간이야.
+- He kept on talking.: 그는 계속 말을 했어.
+- My favorite soccer club is Chelsea!.: 내가 가장 좋아하는 클럽은 챌시야.
+- They have a lot of amazing players.: 그들은 많은 놀라운 선수들을 가지고 있어.
+- My favorite player is in that team too.: 내가 가장 좋아하는 선수도 역시 그 팀에 있어.
+- My favorite player is John Terry!.: 내가 가장 좋하나는 선수는 존 테리야.
+- My favorite season is summer. I love surfing in the sea.: 내가 가장 좋아하는 계절은 여름이야. 나는 바다에서 서핑타는걸 사랑해.
+- My favorite food is steak. It's delicious and easy to cook.: 내가 가장 좋아하는 음식은 스테이크야. 이것은 맛있고 요리하기 쉬워.
+
+## Tranining1
+- My favorite food is hamburgers.: 내가 가장 좋아하는 음식은 햄버거야.
+- My favorite place is Italy.: 내가 가장 좋아하는 장소는 이탈리아야.
+- My favorite soccer team is England.: 내가 가장 좋아하는 팀은 영국이야.
+- My favorite season is winter.: 내가 가장 좋아하는 계절은 겨울이야.
+- My favoirte sport is hockey.: 내가 가장 좋아하는 운동은 하키야.
+- My favorite month is July.: 내가 가장 좋아하는 달은 7월이야.
+
+## Lecture2
+- Our new expression is "I am + noun.": 우리의 새로운 표현은 I am + 명사야
+- The girl in the video is studying hard.: 비디오에서 소녀가 열심히 공부해.
+- I think she is a student, She can say.: 내 생각에 그녀는 학생이야, 그녀는 말할수 있어.
+- I am a student.: 나는 학생이에요.
+- You can use I am + noun to introduce yourself.: 너는 I am + noun으로 너 자신을 스스로 소개할 수 있어.
+- You can talk about your job, nationality, or other things about your self.: 너는 너의 직업, 국가, 또는 다른것들에 관하여 너 스스로 말할 수 있어.
+- For example. "I am actor", or "I am his friend".: 예를들어 나는 배우야 또는 나는 그이 친구야 등.
+- I am can be shortened to I'm.: I am은 줄여서 I'm으로 표기할수도 있어.
+- I'm an American and I'm an English teacher.: 나는 미국인이고 나는 영어 선생님이야.
+- So, if you are a high school teacher and your subject is science, you could say.: 그래서 너는 고등학교 선생님이고 너의 과목의 과학이라고 너는 말할수 있어.
+- I am a science teacher.: 나는 과학 선생님이야.
+- Now listen to my story carefully!: 이제 내이야기 주의깊게 들어줘!
+- I will tell you about my daily life.: 나의 일상생활에 관하여 너에게 말해줄께.
+- In the morning, I go to school.: 나는 아침에 학교에 가.
+- I am a college student.: 나는 대학생이야.
+- I study hard.: 나는 공부를 열심히 해.
+- After school, I go to work because I need some money to study.: 학교가 끝나고, 나는 일하러가 왜냐하면 나는 공부하기 위해 약간의 돈이 필요해.
+- I work part-time at a gas station.: 나는 주유소에서 파트타임으로 일을 해.
+- I am a worker.: 나는 근로자야.
+- I work hard.: 나는 열심히 일해.
+- At night, I go to a toy shop. I buy a doll.: 밤에, 나는 장난감 가게에 가. 나는 인형을 살거야.
+- I come back home and put it on my daughter's bed.: 나는 집에 돌아가서 딸의 침대에 둘거야.
+- She wakes up and says, Who are you?: 내 딸은 일어나고 누구세요? 라고 말할거야.
+- I say I am your father.: 나는 너의 아버지라고 말해.
+- I am a teacher. I teach mathematics.: 나는 선생님이야. 나는 수학을 가르쳐.
+- I am your friend. I want to help you.: 나는 너의 친구야 내가 너를 도와주고 싶어.
+
+## Tranining2
+- I am a student.: 나는 학생이에요.
+- I am a science teacher.: 나는 과학 선생님이야.
+- I am a college student.: 나는 대학생이야.
+- I'm an artist.: 나는 예술가야.
+- I'm a singer.: 나는 가수야.
+- I'm a baseball palyer.: 나는 야구 선수야.

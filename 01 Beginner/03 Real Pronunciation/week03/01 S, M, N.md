@@ -98,4 +98,3 @@
 - Nine nurses know his name.: 9명의 간호사들이 그의 이름을 알아.
 - My new magazines arrived at night.: 나의 새로은 잡지들은 9시에 도착했어.
 - I read magazines every monday night.: 나는 매일 월요일밤 잡지들을 읽어요.
-
