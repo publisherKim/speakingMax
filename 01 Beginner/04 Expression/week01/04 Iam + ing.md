@@ -1,0 +1,75 @@
+## Lecture1
+- We are going to learn the "I am ~ ing" expression together today.: 오늘 우리는 I am ~ing를 함께 배울거야. 
+- In this video a boy and his father are playing soccer.: 이 비디오 안에서 한 소년과 그의 아버지가 축구를 하고 있어.
+- In this case, the boy might say.: 이 경우에 소년은 말할지 몰라.
+- I am playing soccer.: 나는 축구를 하고 있어.
+- You can use the "I am ~ ing" expression to talk about your actions right now.: 너는 I am ~ing라는 표현을 사용해서 너의 지금 하는 행동을 말 할수 있어.
+- I am eating lunch right now. I'm swimming in the pool.: 나는 지금 점식식사 중이야. 나는 수영장에서 수영하고 있어.
+- But, if you use "I do ", it sounds like you usually do something.: 그러나 네가 만약 I do를 사용한다면 이것은 네가 보통 무언가를 하는 것처럼 들려.
+- I eat lunch every day. I swiming in the morning.: 나는 매일 점심을 먹어요. 나는 아침에 수영을 해요.
+- Do you see the difference?: 차이점 알겠니?
+- You study Enghlish every day. You're studying English now.: 너는 매일 영어를 공부해. 지금 너는 영어를 공부하고 있어.
+- Let's say you are in a theater.: 니가 극장에 있다고 말해보자.
+- If your friend calls you during a movie, what would you say?: 만약 너의 친구가 영화를 부르는 동안 네게 전화 왔다면 너는 뭐라고 말할래?
+- I am watching a movie.: 나 영화보는 중이야.
+- I am overweight.: 나는 과체중이야.
+- So I decided to go on a diet.: 그래서 나는 다이어트 하기로 결심했어.
+- Tonight, I'm going out to the park.: 오늘밤 나는 공원에 갈 거야.
+- I am walking now.: 나는 걷고 있어.
+- After a while, I am ready to exercise.: 이제 운동할 준비가 되었어.
+- So I think, "Hmm, why don't I run faster?": 그래서 나는 생각해, "음, 좀더 빨리 달려볼까?"
+- That way, I will use up more energy, so.: 그런식으로 나는 에너지가 더 많이 사용될거야.
+- I am running now.: 나는 지금 달리는 중이야.
+- Now I'm really tired and sweaty.: 이제 나는 정말로 피곤하고 땀투성이야.
+- So I return home to take a shower.: 그래서 나는 집에가서 샤워하고 싶어.
+- Now I'm really hungry!: 나는 이제 정말 배가 고파!
+- No, no/ Eating late at night is bad for my diet!: 안돼, 안돼. 늦은 밤에 먹는것은 나의 다이어트에 정말 안좋아.
+- But I think I can start my diet tomorrow.: 그러나 나는 생각해 나는 다이어트를 내일부터 시작할수 있어.
+- I am eating potato chips.: 나는 감자칩을 먹는 중이야.
+- I am studying science. I have an exam tomorrow.: 나는 과학을 공부중이야. 나는 내일 시험이 있어.
+- My mom is cooking dinner in the kitchen. We will eat pasta.: 나의 엄마가 부엌에서 저녁식사를 요리해. 우리는 파스타를 먹게 될거야.
+
+## Tranining1
+- I am playing soccer.: 나는 축구를 하고 있어.
+- I am watching a movie.: 나 영화보는 중이야.
+- I am running now.: 나는 지금 달리는 중이야.
+- I am eating potato chips.: 나는 감자칩을 먹는 중이야.
+- I am studying math.: 나는 수학을 공부중이야.
+- I am taking a shower.: 나는 샤워 중이야.
+
+## Lecture2
+- Today's new expression is I have to.: 오늘 새로운 표현은 I have to 야.
+- The student in the video is studying.: 비디오에서 학생이 공부를 하는 중이야.
+- She is very tired, but she has a test tomorrow.: 그녀는 매우 피곤하지만 그녀는 내일 시험이 있어.
+- In this situation, she might say.: 이런 상황에서 그녀는 말할지 몰라.
+- I have to study.: 나는 공부를 해야만 해.
+- When your action is necessary, you can use the I have to expression.: 너의 행동이 필요할때, 너는 I have to라는 표현을 이용할 수 있어.
+- It might be something very important or you might not have a choice.: 이것은 매우 중요한 일일수도 있거나 선택권이 없을수도 있어.
+- You can use the I have to expression a lot in everyday life.: 너는 have to라는 표현을 인생 절반에 걸쳐서 많이 사용할수 있어.
+- I have to finish my work. I have to go home now. I have to get up at six.: 나는 일을 끝내야만해. 나는 이제 집에 가야해. 나는 6시에 일어나야 해.
+- Or, if your computer is broken, you might say.: 또는 너의 컴퓨터가 고장났다면 너는 말할지 몰라.
+- I have to fix my computer.: 나는 나의 컴퓨터를 고쳐야만 해.
+- Now let's listen to s story.: 이제 이야기를 들어보자.
+- There is a swimming contest next week.: 다음주에 수영 시합이 있어.
+- All of my classmates will join the contest. So, 반친구들이 전부 그 대회에 참가할거야 그래서
+- I have to join too.: 나도 역시 그래.
+- But actually, I don't really enjoy swimming.: 하지만 사실 나는 수영을 정말로 좋아하지 않아.
+- I am a slow learner.: 나는 배우는 속도도 느려서
+- So I still don't know how to swim well.: 여전히 수영을 어떻게 잘하는지 몰라. 
+- But to be hones, there is another serious reason I don't want to go.: 그런데 정직하게 말해서 나는 가고싶지 않은 또다른 진짜 이유가 있어.
+- For the swimming contest,: 수영대회를 하려면,
+- I have to wear a swimsuit.: 나는 수영복을 입어야해.
+- But I don't want to wear a swimsuit, because I am fat.: 그러나 나는 수영복 입기를 원하지 않아, 왜냐하면 나는 뚱뚱해.
+- I'm worried I think people will make fun of me.: 나는 걱정스러워 내 생각에 사람들이 나를 보고 웃을거야.
+- I should do something.: 나는 무언갈 해야만 해.
+- I have to lose weight.: 나는 살을 빼야해.
+- I have to clean my apartment. It's too dirty.: 나는 나의 아파트를 청소해야해. 이곳은 너무 더러워.
+- I have to go back home now. It's too late.: 나는 이제 집에 가야해. 너무 늦었어.
+
+## Tranining2
+- I have to study.: 나는 공부해야해
+- I have to fix my computer.: 나는 컴퓨터 수리 해야해.
+- I have to wear a swimsuit.: 나는 수영복 입어야해.
+- I have to lose weight.: 나는 살을 빼야해.
+- I have to help my mother.: 나는 엄마를 도와야해.
+- I have to hurry.: 나는 서둘러야 해.
