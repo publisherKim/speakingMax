@@ -1,0 +1,73 @@
+## Lecture1
+- Today's expression is I must.: 오늘 배울 표현은 I must야.
+- There is a train in this video.: 비디오 안에 기차가 있어.
+- Oh, no that's the last train!: 오 저런, 저것은 마지막 기차야!
+- In this situtation, I can say.: 이런 상황에서 내가 말하길
+- I must catch the train.: 나는 기차를 잡아야만 해.
+- I must is a stronger expression than I have to.: I must라는 표현이 I have to 보다 더 강한 표현이야.
+- With this expression, you can say about a very important task.: 이 표현과 함께 너는 매우 중용한 일에 관하여 말할수 있어.
+- If you have an urgent work, you might say, I must finish this work first.: 만약 니가 끝내야할 일이 있다면 너는 우선 적으로 이이를 끝내야만 해 라고 말할지 몰라.
+- If you want to buy a new car, you might say, I must save money.: 만약 네가 새로운 차 사기를 원한다면 나는 돈을 절약해야해 라고 네가 말할지도 몰라.
+- Let's suppose you have a bad cold. In this case you might say,: 니가 심한 감기에 걸렸다고 가정해보자. 이런 경우에 네가 말하길,
+- I must see a doctor.: 나는 의사를 만나러 가야해.
+- Let me explain the I must expression with a story.: 이야기 와 함께 I must 표현을 내가 설명해 볼께.
+- Lsat night I was on my way back home.: 지난 밤 집으로 돌아가던 중.
+- Suddenly, I felt like going to the bathroom.: 갑자기 나는 화장실이 급해졌어.
+- I thought, I must go to the bathroom.: 나는 생각했었어, 나는 화장실에 가야만 해.
+- I was walking go to the nearest publice toilet.: 나는 가장 가까운 공중 화장실로 걸어갔어.
+- But then, I saw another man runnging!: 그러나 다음에 나는 다른 남자가 달려가는 것을 보았어!
+- I wanted to go faster than him.: 나는 그 남자보다 더 빨리 가길 원했어.
+- So, I thought to myself.: 그래서는 나는 속으로 생각했어.
+- I must run faster!: 나는 더 빨리 달려야해!
+- That guy started running faster, too!: 그 남자 역시 더 빨리 달리기 시작했어!
+- So I ran faster, and... Bam!: 그래서 나는 더 빨리 달렸고... 쿵!
+- We bumped into each other.: 우리는 서로 부딪혔어.
+- He looked at me and said "Oh, goodness.": 그는 나를 쳐다보고 말했었지. 오 신이시여.
+- I forgot to trun the oven off.: 나는 오븐 끄는 것을 잊었어.
+- I must return home quickly.: 나는 집에 빨리 돌아가야만 해.
+- I must exercise. I am getting fat these days.: 나는 운동을 해야만해. 나는 요즘 점점 뚱뚱해지고 있어.
+- I must take this medicine. I have a cold.: 나는 이 약을 먹어야만 해. 나는 감기에 걸렸어.
+
+## Tranining1
+- I must catch the train!: 나는 기차를 타야해!.
+- I must see a doctor.: 나는 의사를 보러 가야해.
+- I must go to the bathroom.: 나는 화장실에 가야만 해.
+- I must run faster!: 나는 더 빨리 달여야 해.
+- I must stay at home.: 나는 집에 머물러야 해.
+- I must lock the door.: 나는 문을 잠궈야만 해.
+
+## Lecture2
+- The exoression we are going to learn today is during.: 이 표현은 오늘 우리가 배울 예정인 during야.
+- In this video, one of the students fell asleep.: 이 비디오에서 한 한생이 잠들어 있어.
+- In this case, sha can say.: 이런 경우에 그녀는 말할 수 있어.
+- I fell asleep during class.: 나는 수업시간 동안에 잠들었어.
+- During can mean in the middle of something.: During은 어떤것이 진행되던 도중에라는 의미라고 할수 있어.
+- Nouns that mean a certain time or event come after during.: 명사는 확실한 시간이나 사건을 지칭하는 명사가 during 후에 나와.
+- For example, during lunch time, during your working hours or during the festival.: 예를 들어, 점심시간 동안, 너의 일하는 시간 동안 또는 축제 기간중에
+- Let's say you were talking about what you did last weekend.: 니가 지난 주말에 무엇을 했는지에 관한여 말해 보자.
+- In this case, you can say.: 이런 경우에 너는 말할수 있어.
+- I went camping during the weekend.: 나는 주말동안 캠핑 갔었어.
+- Let me share a story with you.: 너와 함께 나의 이야기를 공유할께.
+- I went to the movies with my boyfriend.: 나는 나의 남자친구와 함께 영화보러 갔었어.
+- I thought the actor was funny.: 나는 이 배우가 재밌다고 생각했었어.
+- I told my boyfriend I liked him.: 나는 나의 남자친구에게 나는 그를 좋아했다고 말했어.
+- He said, Don't talk during the movie.: 그가 말하길, 영화보는 동안 말 걸지마.
+- After the movie, we went to dinner.: 영화가 끝난 후에 우리는 저녁 먹으러 갔었지.
+- I sent my brother a text message.: 내 남자 형제에게 문자를 보냈어.
+- My boyfriend got angry again.: 내 남자친구는 다시 화가 났었어.
+- He said Don't text during dinner!: 저녁 먹는 동안 문자 보내지 말라고 말했어.
+- The next week, my boyfriend got mad at me.: 다음주에 나의 남자친구는 나에게 화를 냈어.
+- He was upset that I didn't call or text him.: 내가 전화하 문자를 그에게 하지 않아서 화가 났다고 했어.
+- He asked, What did you do during the weekend?: 그가 주말에 무얼 했냐고 묻더라.
+- I told him, I went to the movies with my brother.: 나는 그에게 말했어. 나는 나의 남자 형제와 영화보러 갔다고.
+- And we ate a lot for dinner.: 그리고 저녁도 많이 먹었어.
+- Don't sleep during the movie. You will miss it.: 영화 보는 동안 자지마. 놓치는 장면이 있을거야.
+- It rained during my vacation. We had to stay inside.: 나의 휴가기간 동안 비가 왔어. 우리는 안에서 머물렀어.
+
+## Tranining2
+- I fell asleep during class.: 나는 수업하는 동안 잠들었어.
+- I went camping during the weekend.: 나는 주말동망 캠핑 갔었어.
+- Don't talk during the movie!: 영화보는 동안 말하지 마!
+- Don't text during dinner!: 저녁식사하는 동안 문자 하지마.
+- What did you do during the weekend?: 주말에 너 뭐했어? 
+- Where were you during the weekend?: 주말동안 어디에 있었니?
