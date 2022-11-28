@@ -1,0 +1,77 @@
+## Lecture1
+- This time we will learn the How is ~ing expression.: 이번 시간에 우리는 How is ~ing라는 표현에 대해서 배울거야.
+- We have two student scientists who are working on their research.: 동영상에 그들의 리서치를 수행하고 있는 두명의 과학자가 있어.
+- They want to know if things are going well.: 그들은 연구가 잘 진행되고 있는지 알길 원해.
+- In this case, they can ask.: 이런 경우에 그들은 물을거야.
+- How is your research going?: 연구 진행은 어때?
+- When you want to know how someone is doing with their work.: 네가 다른 누군가와 함께 작업할때 어떻게 되는지 알길 원했을때
+- You can use the How is ~going?: expression.: How is ~going이라는 표현을 사용할수 있어.
+- If you want to know how someone's project or someone's study is going.: 네가 누군간의 프로젝트 또는 누군가의 연구 진해을 어떻게 되는지 알길 원한다면,
+- Put the subject between how is and going.: how is 와 going 사이에 주제를 넣어줘.
+- So, you can ask, "How is the project going?" or "How is the studying going?" 그러면 프로젝트 진행 어때? 또는 연구는 어때? 
+- For example, if your friend is starting a new business you can ask.: 예를 들어 너의 친구가 새로운 사업을 시작하던 중 너는 물을 수 있어.
+- How is your new business going?: 너의 새로운 사업은 잘 되어가니?
+- Now, I am going to tell you another story about my family.: 이제, 나는 너에게 나의 가족에 관한 또 다른 이야기를 말해 줄께.
+- Our whole family gathered during the holiday break.: 우리의 전 가족은 연휴대 다 모였어.
+- And it's a very special family time.: 그리고 이것은 매우 특별한 가족 시간이야.
+- And none of us wanted to talk about anything serious.: 그 누구도 심각한 이야기는 하고 싶어하지 않았어.
+- But my uncle always makes everyone upset.: 그러나 나의 삼초은 항상 모두를 화나게 해.
+- He asked my cousin.: 삼촌이 내 사촌에게 물었어.
+- How's the job interview going?: 직업 면접은 잘 봤니?
+- My cousin didn't say anything.: 내 사촌은 아무말도 하지 않았어.
+- Then he asked my brother.: 그 다음은 삼촌은 내 남자형제에게 물었어.
+- How's your studying going?: 너의 공부는 잘 되어가니?
+- My brother left the table.: 내 남자형제는 테이블을 떠났어.
+- Suddenly, my uncle turned to me, Uh, oh.: 갑자기 나의 삼촌은 나를 봤어, 어, 오.
+- And I just asked him first.: 그리고 내가 먼저 그에게 물었어.
+- Aren't you old enough to get married?: 삼촌 결혼할 나이 되지 않았어?
+- How's your dating going?: 데이트는 어때?
+- And he just started eating without saying a word.: 그리고 그는 말없이 먹기 시작했었어.
+- How is your new job going? Do you like it?: 너의 새로은 직장은 어때? 맘에 드니?
+- How is the project going? It is due today.: 프로젝트 진행은 어때? 마감이 오늘이야.
+
+## Tranining1
+- How is your research going?: 연구 진행은 어때?
+- How's the job interview going?: 직업 면접은 잘 봤니?
+- How's your studying going?: 너의 공부는 잘 되어가니?
+- How's your job going?: 너는 일은 잘 되어가니?
+- How's your vacation going?: 너의 휴가는 어떄?
+- How's your workout going?: 운동은 잘 되어가니?
+
+## Lecture2
+- This time we're going to learn a new expression. "feel + adjective.": 이번 시간에는 우리는 새로운 표현인 feel + 형용사를 배울 예정이야.
+- In this viedeo, a couple spends time together with smiles on their faces.: 이 비디오에서는, 한 커플이 서로 얼굴을 웃으며 함께 시간을 보내고 있어.
+- If you ask them how they feel, they might say,: 만약 그들이 어떻게 느낄지 너는 물어볼수 있다면, 그들은 이렇게 말할지 몰라,
+- I feel so happy.: 나는 정말 행복해.
+- When you want to talk about your emotion.: 네가 너의 감정을 말하길 원할때,
+- You can use the feel + adjective expression.: 너는 fell + 형용사 표현을 사용할 수 있어.
+- If you got an A on the test, you might say.: 네가 시험에 A를 받았다면 너는 말할지도 몰라,
+- I feel happy.: 난 행복해.
+- If you are going to give an important speech, you might say,: 네가 만약에 중요한 발표를 해야할 때는, 너는 말하지도 몰라,
+- I feel nervous.: 나 긴장돼.
+- Or if you broke up with your girlfriend or boy friend, you could say.: 또는 네가 남자친구 또는 여자친구와 헤어졌을때 이렇게 말할거야,
+- I feel sad.: 나 슬퍼.
+- Do you understand the feel expression?: fell표현을 이해 했니?
+- Now, let me tell you a story.: 이제, 이야기를 네게 들려줄께.
+- Today is my birthday.: 오늘은 내 생일이야.
+- I think my family and friends are going to give me a lot of presents.: 내 생각에 나의 가족과 친구들이 나에게 많은 선물을 줄거야.
+- I feel excited about the gifts.: 나는 선물이 기대돼.
+- But then, no one told me. "Happy Birthday" today.: 그러나, 어느 누구도 네게 생일축하해 라고 말해주지 않았어.
+- I think no one knows that it's my brithday today.: 내 생각에는 어느 누구도 오늘 내 생일을 몰라.
+- How can this be?: 어떻게 이럴수 있지?
+- I feel so lonely.: 나는 너무 외로워.
+- I arrived home feeling sad.: 나는 집에 도착해서 슬플을 느꼈어.
+- There was no one at home.: 집에는 아무도 없었어.
+- But when I opened the door to my room.: 그러나 나의 방문을 열었을때,
+- My friends shouted out, Happy Birthday.: 내 친구들은 생일축하해 라고 외쳤어.
+- I feel happy now!: 나는 이제 행복해!
+- My coat feels soft. It is made of fur.: 나의 코드는 부드러워. 이것은 퍼로 만들어졌어.
+- I feel full. I ate too much food!: 나는 배불러. 나는 너무 많은 음식을 먹었어!
+
+## Tranining2
+- I feel so happy.: 나는 정말 행복해.
+- I feel sad.: 나 슬퍼.
+- I feel so lonely.: 나 너무 외로워.
+- I feel happy now.: 나는 이제 행복해.
+- I feel tired.: 나는 피곤해.
+- I feel comfortable.: 나는 편안해.
