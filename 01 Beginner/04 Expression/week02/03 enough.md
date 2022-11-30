@@ -1,0 +1,73 @@
+## Lecture1
+- The expression that we will practice today is the enough expression.: 오늘 우리는  enough표현을 오늘 연습할거야.
+- The woman in this viedeo has a hot drink.: 이 소녀는 비디오 안에서 뜨거운 음료를 마시고 있어.
+- Since the drink is ready, she can say,: 이 음료가 준비 되면 그녀는 말할수 있어,
+- It's cool enough to drink!: 마실수 있을 만큼 충분히 식었어!
+- When you have as much as you need.: 너는 필요한 만큰 가지고 있다면,
+- You can describe you condition with the expression enough.: 너의 상태를 enough라는 표현과 설명할 수 있어.
+- It means you don't need more.: 이것은 니가 더 많이 필요하지 않다는 것을 의미해.
+- Let's say you are ordering a pizza, for there people.: 피가 피자를 사람들을 위해 피자를 주문 한다고 말하자,
+- The medium size feeds four people and the large size eight people.: 4명을 위해서는 미디엄 사이즈 이고 8명을 위해서는 라지 사이즈야.
+- When the clerk takes an order, you can say,:  점원이 주문을 받을때, 이렇게 말할수 있어,
+- The medium pizza is big enough for us.: 미디엄 피자면 우리를 위해 충분한 크기야.
+- Now it's time for me to tell you a story.: 이제 나의 이야기를 너에게 들려줄 시간이야.
+- My sister and I went shopping in a mall and found a beautiful dress.: 나의 여동생과 나는 몰에 쇼핑하러 갔고 아름다운 드레스를 발견했어.
+- It was very fancy.: 이것은 매우 멋졌죠.
+- I like that dress Let me buy it for you.: 나는 드레스가 맘에들어 너를 위해 이 드레스를 사줄께.
+- But I said, I have enough dresses.: 그러나 나는 말했어, 나는 드레스가 충분히 있어.
+- I just did't want to buy it.: 나는 이것을 사길 원하지 않아.
+- But I agree that it was a wonderful dress, though.: 그러나 나는 동의해 이것은 멋진 드레스야.
+- She read my face and said.: 그녀는 나의 표정을 읽었고 말했어.
+- Isn't pretty enough to wear to Christmas party?: 크리스 마스 파티에 입기에 충분히 예쁘지 않니?
+- I replied, Umm... yeah... but...: 나는 응답했어, 음...., 예... 하지만...
+- I had to tell her the truth.: 나는 그녀에게 진심으로 말했어.
+- Actually, it's not big enough for me.: 사실, 내가 입기에는 충분히 크지 않아.
+- I don't have enough money. I can't buy this.: 나는 돈이 충분하지 않아. 나는 이것을 살수 없어.
+- Did you have enough to eat? You look hungry.: 충분히 먹었니? 너 배고파 보여.
+
+## Tranining1
+- It's cool enough to drink.: 마시기에 충분히 식었어.
+- This pizza is big enough for us.: 이피자는 우리가 먹기에 충분히 커.
+- I hvae enough dresses.: 나는 충분한 드레스를 가지고 있어.
+- Actually, It's not big enough for me.: 사실은 이것은 나에게 충분히 크지 않아.
+- I'm not tall enough.: 나는 키가 충분히 크지 않아.
+- You didn't practice enough.: 너는 연습 충분히 하지 않았어.
+
+## Lecture2
+- Now we are going to learn the I will expression.: 이제 우리는 I will 표현을 배울거야.
+- There is a man, proposting to his girlfriend.:  그의 여자친구에게 프로포즈 중인 남자가 있어.
+- He wants to marry his girlfriend and be happy together.: 그는 그의 여자친구와 결혼해서 서로 행복하게 살고 싶어해.
+- In this case he can say,: 이경우 그는 말할수 있어,
+- I will make you happy.: 나는 너를 행복하게 해줄께.
+- The I will expression is useful when you want to explain your plans.: I will 표현은 네가 너의 계획을 설명할때 매우 유용해.
+- I will come back I will apologize to him.: 나는 돌아가서 그에게 사과할거야.
+- You can use this expression to describe your future action just before you act.: 너는 이표현을 너의 미래 행동은 너의 행동 바로전에 사용할 수 있어.
+- I'll help you or I'll try again.: 나는 너를 도울께 또는 나는 다시 시도할께.
+- If the phone is ringing and you are going to answer it, you can say.: 전화 벨이 울리고 네가 대합할 예정이라면 너는 말할 수 있어.
+- I will answer the phone.: 나는 전화기를 받을거야.
+- Let me tell you a story using I will. I will을 사용해서 네게 이야기를 들려줄께
+- In high school, I liked a boy.: 고등학교 시절 나는 한 소년을 좋아했었어.
+- He name was john.: 그의 이름은 존이야.
+- One day, john asked me to go to the school dance.: 어느날 존이 학교 댄스에 같이가자도 요청했어.
+- So I said Yes.: 그래서 나는 좋다고 말했어.
+- I will go to the school dance with john.: 나는 존과 함께 학교 댄스에 갈거야.
+- Then in math class I saw Tom.: 그 다음 수학 수업에 나는 톰을 보았어.
+- Tom didn't have a car. He asked me to drive.: 톰은 차가 없었어. 그는 나보고 운전좀 해달라고 요청했어.
+- I said okay.: 나는 알겠다고 했어.
+- I will drive to the dance.: 내가 댄스까지 운전해줄께.
+- After school, I walked outside.: 학교가 끝난후 나는 밖으로 나갔어.
+- I saw john together with Tom.: 나는 톰과 죤이 함께 있는걸 보았어.
+- They were angry.: 그들은 화가났어.
+- Then they saw me.: 그 다음에 그들은 나를 봤어.
+- I began to run away.: 나는 도망가기 시작했어.
+- I will stay home.: 나는 집에 있을거야.
+- I will quit my job, I want to travel around the world.: 나는 직장을 관둘거야 나는 전 세계를 여행할거야.
+- I will call you tomorrow. Please answer your phone.: 나는 내일 너에게 전화할께. 전화를 받아줘.
+
+## Tranining2
+- I will make you happy.: 내가 너를 행복하게 해줄께.
+- I will answer the phone.: 내가 전화 받을께. 
+- I will stay home.: 나는 집에 있을께.
+- I will call you later.: 내가 나중에 전화 걸께.
+- I will stay at the hotel.: 호텔에 머무를께.
+- I will handle this problem.: 내가 이 문제를 다룰께.
