@@ -1,0 +1,74 @@
+## Lecture1
+- Now, let's practice how to describe the weather today.: 이제 오늘 날씨를 어떻게 묘사하는지 배워보자.
+- The dog in this video is playing on the grass,: 이 영상에서 강아지가 풀밭 위에서 놀고 있어,
+- He seems to enjoy the nice day.: 그는 화창한 날씨를 즐기는 것처럼 보여.
+- If you ask the dog about the weather, he might say,: 네가 만약 강아지에게 날씨에 관해 물어본다면 이렇게 말할지 몰라,
+- It's sunny today!: 오늘 날씨 화창해.
+- The sky is covered with clouds.: 하늘이 구름으로 뒤덮여 있어.
+- When you want to talk about the weateher, you can say It's cloudy.: 네가 날시에 관하여 말하길 원한다면 너는 이렇게 말할수 있어, 구름이 꼈어.
+- There are many words for describing the weather.: 날씨를 묘사하는 많은 단어들이 있어.
+- Such as hot cold, windy, raining, and snowing.: 이러한 것들로 뜨거운, 추운, 바람이 부는, 비오는과 눈오는 이 있어.
+- With the it's + weather expression, you can easily talk about the weather.: it's + weather 표현들로 너는 쉽게 날씨에 관하여 말할 수 있어.
+- If someone asks you how the weather is in Alaska you could say,: 누군가 너에게 알라스카의 날씨에 대해 묻는다면 너는 이렇게 말할수 있어,
+- It's freezing.: 엄청 추워
+- So, now, I'll tell you a story.: 그래서, 이제 나는 이야기를 들려줄께.
+- A long time ago, there were the Wind, the Sun, and the Storm.: 아주 오래전에 바람과 태양 폭풍이 있었어.
+- They wanted to decide who was the strongest.: 그들은 누가 더 강한지 결정하기로 했어.
+- Their challenge was, Who can make a traveler take off his coat?: 그들은 누가 여행자의 코트를 벗길지 도전했어.
+- The Wind blew fast.: 바람은 세차가게불었어.
+- The Traveler said,: 여행객은 말했어.
+- It's windy.: 바람이 불어
+- Then he tightened his belt.: 다음에 그는 그의 벨트를 꽉 조였어.
+- So after, the Storm tried.: 그후에 폭풍이 시도했었어.
+- The Storm tried to take off the traveler's coat.: 폭풍은 여행객의 코트를 벗기려고 시도했었어.
+- It's stormy.: 이것은 폭풍이야.
+- And he put on another coat just to keep warm.: 그리고 그는 또 다른 코트를 따뜻해지기 위해 입었어.
+- Lastly, it was the Sun's trun.: 마지막으로 태양의 차례였지.
+- The Sun's heat was enough to make the Traveler warm.: 태양의 열은 여행객을 따뜻하게 만들기에 충분했어.
+- It's too hot.: 날씨가 너무 더워.
+- It's sunny today. Let's go outside.: 화창한 날이야. 밖으로 나가자.
+- It's warm. I don't need my jacket.: 날씨가 따뜻해. 나는 재킷이 필요 없어.
+
+## Tranining1
+- It's sunny today.: 오늘은 화창해.
+- It's freezing.: 날씨가 추워.
+- It's windy.: 바람이 불어.
+- It's very hot.: 날씨가 매우 더워.
+- It's snowing.: 눈이 와.
+- It's cloudy today.: 오늘 구름이 꼈어.
+
+## Lecture2
+- Now, we will learn the expression I need to verb.: 이제 우리는 I need to 동사 표현을 배울거야.
+- In the video a student is asking questions to his teacher.: 비디오 안에서 한 소년이 그의 선생님에게 질문을 하고 있어.
+- In this situtation, the student might say,: 이런 상황에서 이 학생을 말할지 몰라,
+- I need to listen to the teacher.: 나는 선생님의 말을 들을 필요가 있어.
+- When you need to do something,: 니가 무언가를 필요로 하는 것은
+- It meens that your action will fix a problem and help you out.: 너의 행동이 문제를 해결하고 도움이 될거라는 의미야.
+- If you do it, It is good for you.: 네가 이것을 한다면, 이것은 너에게 도움이 될거야.
+- So you might say, I need to exercise or I need to get sleep.: 그래서 너는 말할지 몰라, 나는 운동이 필요해 또는 나는 잠이 필요해.
+- Let's say you often forget your password. You think you should change it into an easier one.: 당신이 종종 비밀번호를 자주 잃어버린다고 말하자, 너는 생각할거야 너는 좀 더 쉬운것으로 바꺼야 한다고 말이야.
+- In this case, you can say,: 이경우에 너는 말할 수 있어,
+- I need to change my password.: 나는 비밀번호 바꿀 필요가 있어.
+- Let me tell you my story.: 내 이야기 너에게 말해줄께.
+- A new somester begins, New textbooks, new classes...: 새로운 학기가 시작되었어, 새 교과서, 새교실...
+- I want to do well this semester, So, 나는 이 학기가 잘 되길 원해서,
+- I need to study tonight.: 나는 오늘밤 공부가 필요해.
+- But it's very hard to focus on studying.: 그러나 공부에 집중하는 것은 매우 어려워.
+- My desk is too messy.: 나의 책상은 매우 더러워.
+- The stuff on my desk is annoying! So, 책상 위에 있는 물건들이 신경쓰여! 그래서,
+- I need to clean my desk.: 나는 나의 책상을 청소할 필요가 있어.
+- I put away the pencils and books.: 나는 책과 연필을 치워.
+- I make my desk shiny.: 나는 나의 책상을 빛나게 만들어.
+- Ah, now this is good for studying.: 아, 이제 공부하기 좋아졌어.
+- But then I suddenly feel tired.: 그러나 다음에 나는 갑자기 피곤해 졌어.
+- I need got some sleep.: 나는 약간 잠이 필요해.
+- I need to tell you something. You are my best friend.: 나는 너에게 무언가를 말해줄 필요가 있어. 너는 나의 가장 친한 친구야.
+- I need to learn English. Will you teach me?: 나는 영어를 배울 필요가 있어. 나좀 가르쳐 줄래?
+
+## Tranining2
+- I need to change my password.: 나는 비밀번호 바꿀 필요가 있어.
+- I need to study tonight.: 오늘 밤엔 공부해야해.
+- I need to clean my desk.: 나는 책상을 청소해야해.
+- I need to get some sleep.: 나는 잠을 좀 자야 해.
+- I need to send this letter.: 나는 이 편지를 보내야해.
+- I need to talk to her.: 나는 그녀와 이야기를 해야해.
